@@ -1,4 +1,4 @@
-Bard krasnolud=> Bjorn
+Bard krasnolud=> Bjorn (nie mogłem ci zrobić dobrego 'o' nie bij mnie)
 => Jan Kowalski 
     => Bodo - Głowa, Gnom Arcane Trickster 
     => Bado - Nogi, Gnom Arcane Trickster 
@@ -9,7 +9,7 @@ krasnolud barbarzyńca - Valmir
 Koto Kleryk => Kania
 Niziołek Spores Druid=> Proknor
 Tiefling Wild Magic Sorcerer => Anton
-??? Tiefling - Smerfetka
+Warlock Tiefling - Smerfetka
 
 #sezon 1
 
