@@ -1011,3 +1011,239 @@ następna sesja
 		Bądź pozdrowiony Bruno, od twojego dobrego kolegi Bruce'a. Zostawiłem ci prezent niedaleko domu. Idzie i odnajduje (chyba coś koło) 500gp
 	}
 }
+
+ogłoszenia =>
+	wigilia koła
+	sylwek na wawrze
+
+Następna sesja
+{
+	powtórka
+	{
+		całkiem ciekawy sen, noc i ekscytujacy poranek (walka z mimicami)
+		zjedliśmy śniadanie i przypominamy sobie wydarzenia z nocy, dziwne strzeły które dobiegały z zewnątrz, bruno dostał szpilkę
+	}
+
+	po śniadaniu
+	{
+		moris nie wie nic o wydarzeniach z nocy,
+		nikt nie wie co jest w fabrykach i co się w nich dzieje
+		ktokolwiek lub cokolwiek tam jest mocno ceni sobie prywatność
+		1 grupa wychodzi, 2 zostaje
+	}
+
+	wychodzący (w tym ja)
+	{
+		przykuwa naszą uwagę to iż słyszymy jakieś pieśni
+		zauważamy podobną makabrę która spotkała nas dzień wcześniej lecz tym razem zamiast ryceży widzimy jednostornną masakrę - ludzi zwyczajnych, szemranych
+		możliwe że zapadła i zapanowała żelazna ręka (słowa stasia)
+
+		ściany fabryk są podniszczone ale unosi się przy nich lekka mgła a ściany się z lekka same zasklepiają.
+		słyszymy, że pieśni dobiegają z wnętrza fabryk
+
+		słyszymy dźwięki maszynerii i jakby pieśni kapłanów kuźni wykuwających artefatkty
+
+		Iso próbuje zajrzeć do środka przez szparę w ścianie, kiedy zerka widzi dużą ilość dymu/pary (nakładającej się na ścianę)
+		Jest w stanie zerknąć do środka i widzi (przede wszystkim) ludzi (ale poszczególne inne rasy) (robotników) którzy z młotami stoją i wykuwają coś, śpiewając w języku którego nie rozumiemy
+
+		Iso próbuje przerzucić kamyk do środka ale on zatrzymuje się on w ścianie i staje się jej częścią
+
+		Zniszczenia idą z wewnątrz miasta w stronę centrum, widać też ślady st00pek (wiem że patrzycie w te notatki st00pkarze to dla was)
+
+		Druga grupa do nas dołącza, Bruno ma na oczach okulary które pozwalają mu cokolwiek wiedzieć (bo oślepił go blask Antona)
+
+		Idziemy po śladach w stronę centrum
+		Zauważamy że tutaj w mieście bardzo duża ilość ludzi nosi ze sobą biżuterię w Lazurowym kolorze (hehe Lazurowa dziwka reference strikes again)
+
+		Widzimy też budynek który wcześniej nie przykuł naszej uwagi, wygląda jak kościół, dość niedawno zniszczony kościół który wyznawać mógł najprawdopodobniej Lazurową Panią (ah shit here we go again... to jak brzmiał ten mój komentarz przed chwilą?)
+
+		Budynek wygląda na opuszczony. (nie dziwię się też bym miał jej dość)
+
+		Valmir podchodzi do kościoła i stara się zaglądnąć do środka, w środku jest na tyle ciemno że nic nie udaje mu się dostrzec
+
+		Anton Iso i Bjorn wchodzą do środka. W kościele panuje magiczna ciemność. Dla innych wygląda to tak jakby stali w Drziwach. Ja widzę jakby weszli do środka ale ciężko mi dostrzec wnętrze. Do ich nosów szybko dociera zapach papierosów. 
+		Kiedy oni podchodzą widzą:
+			Bjorn nie widzi nic; (oślepił go blask jego ego)
+			Reszta jest w stanie określić kształt kaplicy i skąd dobiega zapach papierosów.
+			Słyszą nagle jak coś znajduje się za nimi, instynktownie się odwracają ale nikogo tam nie ma, kiedy się odwracają (Anton robi Con Save - 14 - fail) jest ogłuszony kiedy coś z nagłą prędkością uderza go w brzuch, potem Bjorn słyszy obok swojego ucha klik i czuje jak zimna stal przyłożona jest do jego głowy. Postać znów zaciąga się papierosem 
+			"Żadnych głupich ruchów"
+			Iso - kim jesteś
+			Postać uderza Iso w kark w tamtym momencie ale nie jest ogłuszona, za to słyszy potem drugie klik przyłożone do jej głowy.
+			- Po co tu wchodziliście?
+			- Ineteresowało nas to co jest w środku
+			- Wyjdźcie stąd po prostu.
+			Wychodzą kiedy kolejne uderzenie spada na Antona i go odogłusza, za nimi drzwi się zamykają
+
+		Mi pojęcie broni palnej gdzięś dzwoni ale nie wiadomo w którym kościele (pewnie w tym na przeciwko ale osobiście wolę tam nie wchodzić)
+
+		Kiedy przyglądamy się ciałom na ziemi to widać na nich dziwne runiczne znaki => dla Vel wyglądają one na symbole magiczne które mają zwiększać jakieś aspekty fizyczne
+
+		Kania w międzyczasie widzi że Proknora (grzyba) nie ma w plecaku
+
+		Idziemy dalej po śladach w stronę centrum
+		Na głównym placu zniszczenie zrobione przez panią generał jest już w pełni zregenerowane, przy ratuszu siedzą strażnicy z symbolem latarni na naramiennikach
+		Jest też kilku innych z symbolem wieży strażniczej na fioletowym tle (symbol lorda wschodu - Veltafy)
+
+		Przed ratuszem widzimy jak wiszą nowe symbole, właśnie symbole Veltafy
+		Vel wydaje się być odrobinę zakłopotana
+
+		Bard podchodzi do bramy ratusza, próbując poderwać strażnika. 
+		- Czego ode mnie chcesz?
+		*Bard wyjmuje butelkę wina*
+		- Może dałbyś się zaprosić na lampeczkę wina, po służbie?
+		- Po służbie, chętnie.
+		(Elf - *facepalming* o kurwa, znowu)
+		Anton - be like: dawno nie spędzałem z nikim nocy, podchodzi do elfa
+		- Heeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeej (pojebało go, przy takim długim e to nawet ja bym się zaczął odsuwać, rzucił 13 (https://i.imgflip.com/47eqrr.png))
+		*Elf musiał mocno przemyśleć swoje decyzje życiowe po czym machnął na Antona ręką, może dziś nie miał ochoty na homo*
+
+		MEANWHILE MOON PRÓBUJE SIE WPIERDOLIĆ NA RATUSZ (17 na skradanie XD (i to niby Antona pojebało))
+		Kania widzi jak Moon tam wszedł xDDDD (skisne szybciej niż borowiki w plecaku kanii)
+		
+		Moon rozgląda się po ratuszu (po prostu kurwa xD, https://www.youtube.com/watch?v=18Kr_v3y6Zo , nie mam nic więcej do dodania)
+		{
+			Kiedy wchodzi do środka witają go pięknie zdobione pomieszczenia o drewnianych wykończeniach. W pewnym momencie widzi jak w jednym z bocznych pokoi ktoś parzy herbatę, widzi jak wyciąga małą buetleczkę i dolewa kropelkę do herbaty po czym chowa ją spowrotem. Potem bierze tacę i idzie korytarzami na górę i mówi:
+
+			- Pani Artawio, herbata gotowa.
+
+			Moon widzi jak postać powoli zanika w korytarzu na górze, Moon idzie za nim. (14 stealth)
+			(Kurwa ktoś mu jebnie zaraz,  https://www.youtube.com/watch?v=IBFz7G2YfgI )
+			Moon słyszy głos Pani generał:
+			- Co to za dźwięki
+			- O wiesz pewno wiatr, kazałem przewietrzyć budynek z uwagi na pani zdrowie
+			MOON CHCE WCHODZIĆ XD
+			Kątem oka Moon widzi postać, którą ostatnio Moon widuje często, postać kiwa głową przcząco 
+			
+			G: Jestem tak zmęczona po tej nocy
+			S: Dowodzenie jednostką specjalną może być męczące nawet dla takiej istoty jak pani.
+			G: Nareszcie przekonaliśmy też tego zgrzybiałego Veltafę do współpracy. Rozstawiliśmy maszyny żeby pozbyć się zakonu wiedźm które tu są, maszyny kroczące na dwóch nogach stare ale potężniejsze niż większość ludzi na tym świecie mogące wystrzelać tysiące kul na sekundę. Niechaj wreszcie wybiorą tego nowego króla Kyssi i niech ten chaos się wreszcie skończy. Książę William będzie dobrym władcą. *Pije herbatkę, zakaszlała* - Możesz już iść, mam dużo papierkowej roboty.
+			Moon ucieka i wychodzi z ratusza, do strażników mówi 
+			- Czołem!
+			STRAŻNICY DEBILE SIĘ NIE ZORIENTOWALI ( https://i.imgflip.com/614o43.png ) (pewnie wciąż myśleli chujami po interakcji z bardem)
+
+			Moon widzi z okna jak ktoś stoi i się na nas patrzy, Pani Generał stoi i zasłania zasłonę.
+
+			"Moonie jesteś najbardziej naiwnym ale najbardziej skutecznym szpiegiem jakiego znam" ~Anton 
+		}
+
+
+		Bruno prowadzi Barda do Krawca Pluka, aby mógł kupić ubrania na randkę
+		{
+			Za ladą stoi ptako-człek o małych skrzydłach, brązowym pieżu, każde słowo które wypowiada innym głosem.
+			"Witajcie - u - Kluka - co - mogę - wam - podać?" => (postać to Kenku, ptaki które nie potrafią latać ale za to potrafią mówić głosami innych, jednocześnie często nie potrafią mówić własnym głosem)
+
+			Bard kupił sobie coś ładnego (zielony garnitur ze złotymi zdobieniami przy klapach)
+
+		}
+
+		Jak rozglądamy się po niebie dym który zwykle zasłaniał nam niebo wydaje się być bliższy mgle niż dymowi tak jak wcześniej.
+
+		Kiedy Moon przygląda się niebu dostrzega coś czego nie dostrzega nikt inny. (we wonder what that is)
+
+		Idziemy do karczmy - nazywa się "U Pana Boga za piecem" (kurwa prawie jak zakrystia, może też będzie pukanko- waaaaaaaaaaaiiiitttt a minute)
+		{
+			W karczmie się dzieje i jest dość żywo
+
+			Za barem stoi człowiek o podkrążonych oczach. 
+			Obok karczmy jest tablica ogłoszeń z jedną notą -
+			"Zadanie dla drużyny która podejmie się zwalczyć złe bestie w lesie 100gp, więcej informacji u straży przy południowej bramie"
+
+			Valmir daje Antonowi Piwerko (ukradzione z pownicy Bruna o czym Bruno wspomniał 4 razy)
+
+			Widzimy jak strażnicy wchodzą i siadają przy jednym ze stołów (nie poznajemy ich poza jednym wyjątkiem - będzie bard moment x3 )
+
+			Widzimy jak do karczmy wchodzi pewna postać, dość wysoki mężczyna o blond włosch, zaroście i piwnych oczach, zasiada w miejscu w którym wcześniej zasiadał Apostrofa
+			Postać rozkłada papiery na stole i zaczyna je czytać. Zdaje się że postać nie zwraca na nas jakiejkolwiek uwagi. 
+
+			Iso podchodzi do barmana i pyta o typa z fajką.
+			B: - Widmo, nie pytać.
+			Iso próbuje go przekonać (nieudany rzut)
+			Bruno do barmana:
+			Bruno: Czy wiesz co się działo wczoraj w nocy.
+			Barman: Moje uszy głuche gdy nie słyszę dźwięku monet.
+			*podsuwa mu 15 monet*
+			Barman: Moja pamięć szwankuje
+			*do 18*
+			Barman: Ciężko się żyje w tym mieście
+			*do 21*
+			Bruno: Kto po co i co.
+			Barman: Pani generał broń kult wiedźm. Kult się rozroił ale sądząc po wczorajszej nocy będzie ich niewielu. Czczą jakąś wiedźmę, Eureka się nazywała. Być może parę złotych monet odświeży moją pamięć. 
+
+			Barman podchodzi do palacza i podaje mu filiżankę kawy. 
+
+			Moon: Jakich rzeczy najczęściej dodaje się do herbaty.
+			Barman: W tym mieście, trucizny albo lekarstw.
+
+
+			Meanwile bard z guardem sobie plotkują o życiu w tym mieście. Bard podpytuje o rzeczy z armii ale guard niewiele wie.
+			"Bardzo źle mi sie spało przez te huki poprzedniej nocy, może chciałbyś mi pomóc" (https://www.youtube.com/watch?v=iaVurwBf6Wg)
+
+			Bard + Guard:
+			B: gdzie będziemy spać
+			G: znam fajne miejsce
+			(bard 19con, wątek się urywa xD)
+
+
+			Valmir podchodzi do typa z fajkiem i pyta czy musi tak palić (http://żal.pl)
+			Kiedy tamten mu odpowiedział to Valmir się z lekka zesrał i życzył mu miłego pobytu xD.
+			(typ ma conajmniej +40 śledztwa, łączy kropki wykładniczo, Valmir dostał wylewu)
+
+			
+			
+			jakiś pijany typ (młody przystojny z czzarnymi włosami i lekkim wąsem) łapie Vel i chce ją wyciągnąć do tańca, Vel przerzuca typa na Iso. 
+			Iso idzie w ten flirt (rzuciła nat 1 obronne na charyzmę)
+			Stasiu dostaje obrażenia psychiczne
+			tańczą i bawią się zajebiście
+
+			Do bruna podchodzi pewna osoba:
+				{
+					tiefling, pyta czy się napiją razem:
+					B: odmawia
+					T: a może ci w czymś w takim razie pomóc (brzmi to conajmniej jakby oferowała mu szybki numerek w damskim kiblu)
+					tiefling wygląda na przyjazną osobę, nie wydaje się być podejrzana
+					T: przybyłeś tu sam?
+					B: nie, mam dużo towarzystwa - wskazuje na nas
+
+					smerfetka meanwhile znikła nam z oczu
+
+					B: zakładam że nie przyszłaś- edłeś (Bruno wciąż niedowidzi xD https://www.youtube.com/watch?v=-WRv1ssXTXA ) tutaj mnie podrywać tylko mi pomóc.
+					T: właściwie to szukam pracy
+					B: czym się zajmujesz
+					T: mogę robić wszystko
+					B: Roberto w sumie potrzebuje pomocy, mamy nowy dom i trzeba go trochę ogarnąć
+				}
+			Moon się upił 
+			Kania zabiera Moona od Valmira i wymienia go na Antona który idzie napić się z Valmierm.
+			Anton zamawia absynt. 
+			Valmir po absyncie zajebał barnka w podłogę
+
+			Vel zauważa że nie ma swojego rodowego sygnetu
+
+			Po małym zamieszaniu Iso zauważa że typek z papierosem bawi się jej pierścieniem
+
+			Vel do barmana - szklankę najmocniejszego co masz
+			B: jest to pogromca smoków, ma pani pewność?
+			V: whaever, dawaj.
+			*wlewa kubek pełen wody, do tego z fiolki dodaje kropelkę czegoś kiedy cała zawartość kubka czernieje*
+			Vel otrzymuje 2 punkty zmęczenia
+
+			Podchodzi do typka z fajkiem 
+			V: oddaj mi to, (lekko przechyla się na bok), proszę
+			F: połączyłem kilka kropek
+			V: oddaj go
+			F: nie, przyda mi się ten pierścień, jest kluczem do... wielu drzwi
+			*percepcja, nieudana*
+			V: czy jest coś co mogę ci dać w zamian
+			F: musisz się pogodzić z tym że nie zawsze dostajemy to czego chcemy
+
+			typ znów zrizzował Iso (typ nazywa się Darek xD)
+			Iso już dobrze wie, że dziś nie wraca na noc ( https://www.youtube.com/watch?v=iaVurwBf6Wg v2)
+
+			Kiedy Vel wychodzi ma pierścień na sobie i notkę - radzę lepiej pilnować swojej tożsamości pani Velmeio, mnie niebardzo ona obchodzi ale niektórzy w tym mieście dali by za to fortunę. 
+
+			Bruno znajduje wstążkę z domu Dymirów
+
+			Koniec sesji
+		}
+	}
+}
