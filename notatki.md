@@ -1,0 +1,1398 @@
+Bard krasnolud=> Bjorn (nie mogłem ci zrobić dobrego 'o' nie bij mnie)
+Jan Kowalski 
+    => Bodo - Głowa, Gnom Arcane Trickster 
+    => Bado - Nogi, Gnom Arcane Trickster 
+
+	A no i potem zamiast nich pojawił się jeszcze Bruno (ich ojciec) ale w sumie chuj wie czym on jest (najpewniej też rogalik arcane trickster)
+
+Mag Diabelstwo => Vel
+Monk Aakokra => Cri(iarr)
+Paladyn Kobold => Iso
+krasnolud barbarzyńca - Valmir
+Koto Kleryk => Kania
+Niziołek Spores Druid=> Proknor
+Tiefling Wild Magic Sorcerer => Anton
+Warlock Tiefling - Smerfetka
+
+# sezon 1
+
+###### Kraina Kyssia (historia)=> wojna z Jaszczuroludźmi z bagien (kraj rządzony przez konklawe)
+
+Za pustynią od Kyssi ocean, instnieje kolej prowadząca do stolicy Kyssi
+
+## Pod Pegazem
+
+Karczma pod pegazem na wzgórzu => krasnolud z pierścieniami na prawej dłoni (Fodar)
+Elf z puszczy => Omar 
+Puszcza => Buckwald
+
+## Konoha
+
+Konoha => wioska ukryta w liściach za puszczą Buckwaldem
+    Szkoła ninja => Karczma
+
+    Lore{RODZINA SATYRÓW W KRÓLESTWIE ZA MORZEM - od wróżki w szkole ninja}
+    Wrózka Kirwa, Goliat - Bert
+
+
+ŚNI MI SIĘ PUSTYNIA => PIASEK NIE DO PRZEJŚCIA ZMIENIA SIĘ W SZKŁO I SŁYSZĘ SYK ORAZ WIDZĘ WĘŻA
+
+Budzimy się bez broni
+
+1 zmiana - Kamil (strażnik)
+Kapral Frady - wysoki rangą oficer, zamieniłem się w niego w Konosze po czym zdobyłem uzbrojenie
+
+Liliput Bocianosky - szukamy dla niego PETuni, postać bazowana na kumplu stanisława, pomógł nam odzyskać broń od harpii, które władały nad umysłami liliputów
+
+Po przyzwaniu broni spowrotem słyszę - I NIGDY WIĘCEJ TEGO NIE POWTÓRZ (rozłąka z bronią)
+Negocjacja broni z harpiami => nie zdradzać lokalizacji, zwrot broni
+
+Vel dostaje ostateczny potion ~~(to wcale nie tak że da radę go użyć bo będzie leżeć nieprzytomna)~~
+
+Szkoła Ninja - Karczma Kirwy
+
+Stary Joe przychodzi do karczmy, poszukiwania wieczora, 
+
+ktoś gada z bodo i bado po czym zasypiamy
+
+## Kraina snów
+
+Przenosimy się do krainy snów (realm satyrów)
+- uwolniłem Kanie
+- widzimy smoka
+- wpierdalam trawę *(mmm trawunia ciekawe co by było jakby ją zapalić)*
+
+Nazwa realmu: szmaragdowy sen 
+
+Szmaragdowy Koszmar (zła strona wymiaru)
+As DD
+Anton opętany w szmaragdowym koszmarze
+huehuehuehue :33
+Po pokonaniu potwora z koszmaru o wielu twarzach Iso znajduje pierścień (odp necr, nie można zdjąć z palca chyba że z palcem)
+Kilka postaci zarażonych => ~~dopisz sobie które debilu potem~~
+wpierdalam trawę znów bez własnej wiedzy
+widzę siebie wiszącego i zmasakrowanego na drzewie, zaczynam się histerycznie śmiać a potem tracę kontrolę
+nogi jana uciekały przed pewną kobietą
+
+Dideryk Kastnyr => postać Huberta, kapłan z dalekiej północy 
+- mineliśmy szare drzewa
+- widzimy szaro-czerwonego smoka 
+- Iso nie chce oddać Diderykowi pierścienia
+- Kapłan Znika po próbie odebrania go (koniec sesji)
+
+
+
+-jesteśmy na szlaku
+!!!Przestroga druidów aby udać się w stronę jakiejś jaskini!!!
+Po środku lasu znajduje się pojedyncze drzewo o białym pniu i niebieskich liściach
+ukrywam eldrich blasta aby odciągnąćs smoka który latał wokół nas
+głowa Jana wie jak dotrzeć z gościńca do drzewa, ma mape
+Postać pantery zbudowana z drewna i kości wgryza sie w bark smoka, smok zaczyna mocno krwawić, kocia postać przemienia się w niedźwiedzią postać i ryczy na smoka, smok jest przerażony i odlatuje
+
+niedźwiedź o szarej skórze pokryty niebieskimi listkami=> przemienia się w kobietę koło 190cm z maską z białego drewna oraz potężnym młotem na plecach (młot ma nasionko jako część), jest druidką szczepów, !!!DRUIDKA VISZERA!!! jest człowiekiem ma białe włosy ( w drzewie zdjęła na chwilę maskę zrobioną z magicznego drewna od ogników), !ma blado białe oczy - jest ślepa! 
+
+smok=>szczep smoków koszmaru powstał dawno temu w odpowiedzi na istniwnie szmaragdowych smoków, nie są rodzone a jaja są kradzione przez satyrów i zmuszane do wykluwania smoków koszmaru dla równowagi 
+
+//Satyry powstały na wskutek elfów przemienionych złą mocą, reprezentują równowagę//
+
+Bard coś zaczyna nucić przy druidce, staram się go zagłuszyć swoim performance XD (19)
+Druidka z wysp królestwa ludzkiego "Kultires"
+Niebieski kolor charakterystycznym elementem pożywienia drzewa druidki, drzewo żywi się fragmentami dusz
+w domu w drzewie brak normalnego oświetlenia, światło dają bardzo duże nasiona animy w których widać leżące zwierzęta, rozwijające się, w jednym z nich jakby rozwijała się postać 
+drzewo leczy dusze, a żywi się duszami okolicznych smoków i satyrów
+w drzewie na górnym piętrze pokoje, na dole nasiona animy drzewa i spiżarnia
+
+proknor po dotknięciu nasiona animy czuje jak fragmenty duszy łączą się w całość, rozdarte dusze łączą się w całość by stąpać znów po tych polach + przypomina sobie historie o druidach którzy mówili iż wstali z martwych (odrodzenie)
+
+szmaragodwy sen jak wiosna, narodzenie życia
+koszmar - jesień obumiera
+niebieskie lasy anderwaldu - razem z nią rzeczy budzą się do życia
+natura mijana w świecie realnym=>lato 
+
+młot druidki powstał po pokonaniu behemota który jest manifestacją zimy 
+
+
+
+w jednym z odgałęzień na suficie niebieska świecąca istota - ognik(dusza przeciętnego druida, która zbiera drewno bez niszczenia drzewa, drewno jest zdolne przetrwać nawałnicę ataków), która kręci się w okół owego odgałęzienia, drzewo narasta i zbiera się wokół tego
+
+
+herbata od druidki jest bardzo dobra, odczucie porywania fal z każdym łykiem 
+Iso pod czerwoną kokardką ukrywa na rogu pierścień
+
+Kania dostaje grzyby od druidki, ma 20
+Anton czuje wewnętrzny spokój, nie czuje fatum nad sobą i może normalnie odpocząć, jest tu coś, co chroni go
+
+Druidka sięga po jakiś kwiat, który nakłada na moją herbatę, miesza trochę =>herbata teraz pachnie kwiatem, którgo nie znam o gorzkim aromancie, pije duszkiem po czym idę do pokoju gdzie zaczynam medytować dając krwi i myślom podążać według uznania
+
+ręka druidki świeci białym światłem i leczy Moona z choroby od koszmarnego potworka z buziami (UwU) , choroba osłabia pernamentnie
+
+Iso pyta swojego boga o pierścień => czuje jak jej symbol się porusza, łapie się i jej rogi są dłuższe, w pierścieniu widzi swoje odbicie i czuje w nim niesamowitą moc, która ma swoją cenę, nie wie czy chce go założyć, 
+
+Kania widzi we śnie boga Borowika po zebraniu grzybów -> nieobecność przez paladyna który miał zabić w dzwon w równoległej rzeczywistości, Kania trafił na dobrych towarzyszy których ma wspierać, daje Kani magiczny topór battleaxe jednoręczny +1 (dmg necrotic) (fioletowo-żółty) w kształcie grzyba którym ma nieść jego wolę, 
+    TOPÓR - "mały palec borowika" leczy sojuszników i niesie zniszczenie wrogom, Kania ma znaleźć jaskinię i zabić to co się w niej znajduje, rany zadane sojusznikom porastają leczącym grzybem,
+
+Ja leżąc - powrót wspomnień, pochodnie światła, zniszczenie, krew, DUŻO KRWI, moje ręce są ludzkie a na niebie słabo tlący się księżyc który ma wokół siebie aureolę (HALO KSIĘŻYCOWE=>znak nadejścia złej pogody) 
+
+Moon w pokoju widzi lustro w które patrzy => próbuje oprzeć się swojemu wizerunkowi po czym kładzie je gdzieś odwrócone i idzie spać 
+
+Bard po obudzeniu widzi mocno ranną osobę w którą wbita jest czarno-czerwona gałąź (pewnie na czarno-czerwonym koniu), Viszera próbuje go leczyć
+Viszera- "wiem czemu się tu znaleźliście, widzieliście jaskinię, celem dla którego tu jesteśmy jest zniszczenie plagi istoty która tu podróżuje, !ZŁOKORY!"
+
+Vel o pierścieniu Iso => odporność na obrażenia nekrotyczne, przeklęty=> raz założony nie może zostać zdjęty przez normalne okoliczności, można go zdjąć razem z palcem
+
+druidka leczy zarażonych
+
+mamy zniszczyć złokorę => druidka prowadzi nas w stronę jaskini, drzewa wokół poobrywane z liści, tak jakby coś je jadło
+
+movement speed x2 po gwiździe druidki zmienionej w Jelenia
+
+istota z którą mam pakt też chce żeby złokora przestała nękać tę ziemię
+
+Druidka Viszera doprowadza nas do Jaskini, zmienia się w ptaka i odlatuje
+
+
+Herbata od Viszery = +1 spellslot
+
+Wchodzimy do Jaskini (odbyt szatana XDD) 
+
+wnętrze jaskini wygląda jakby coś zamieszkiwało to miejsce (jakieś uformowane formy skalne masło maślane)
+Bard stąpa na płytkę która wypuszcza pocisk z kuszy który go nie rani
+
+Na ścianach niebieskie kwiaty z cierniami, moon wącha je i słania się na nogach
+
+Głowa Jana nazwała mnie KOZĄ, nie trafiłem go eldrich blastem
+Kania atakuje Moona lecząc go, po czym musi flexować
+
+Na końcu korytarza 3 przejścia:
+wyrwane drzwi - sfermentowany zapach, wygląda jak labolatorium, jest w nim dużo roślin i szare ponadgryzane owoce
+Zamkniente drzwi - korytarz
+Łuk - puste pomieszczenie - tekturowa ściana za którą jest fontanna która emanuje swojaką mocą
+
+W koncie pokoju sakwa, W sakwie ten sam kwiat, który odurzył Moona
+Valmir zaciąga się kwiatem
+Valmir wspomina miasto, braci i siostry, komnaty ścieżki i krew którą widział, bestie i abominacje które mordowały ludzi, słyszał trzepot wielkich skrzydeł, kładzie się na ziemi jest ogłuszony na 3 tury
+
+Valmir zaciąga się kwiatem jeszcze raz po czym upada
+
+Bard czując zapach widzi w sakwie sowę, która piszczy
+
+Moon bierze sample tego kwiata i zamyka go w dużej próbówce
+
+=> w labolatorium roślinnym szare, ponadgryzane owoce, stół alchemiczny - 1 mikstura leczenia 1d4+4 => to nie jest mikstura leczenia pachnie bardziej jak trucizna, poza tym przerośnięty ziemniak (moon bierze próbkę)
+
+=> pomieszczenie z fontanną, nie dotknęła jej korupcja która pochłania to miejsce, +10 temporary hit points
+Iso wchodzi do wody po czym zaczyna się topić
+
+=> Głowa Jana dezaktywowała wszystkie pułapki w korytarzu
+
+W korytarzu 4 posągi bez twarzy w róznym odzieniu - 4 peleryny: (myślę o porach roku - może być jakaś korelacja)
+- czerwona
+- niebieska
+- różowa
+- zielono-szara (cloacker) => ubiliśmy szmate (dosłownie)
+
+Głowa Jana coś pije - szumi mu w głowie i nie wie o co chodzi, spawnuje nóż minor illusion i jest pod wpływem tej iluzji, próbuje go podnieść
+
+Anotn odlewa się na różową figurę (może ma jakiś fetysz)
+
+Na ścianach pomieszczenia różne ornamenty, dekoracje tak jak u jakiegoś kultu 
+
+Szaro-zielona peleryna owija się wokół Kanii, peleryna wgryza się w Kanię (peleryny mają zęby i ogony)
+
+Po ataku peleryna znika, peleryny mogą zamieniać się miejscami 
+Kreatura zaczyna wyć po trafieniu
+Peleryny (cloacker) to płaszczkowate potwory o dużej ilości zębów
+
+Krzyk tego czegoś jest przerażający
+
+Iso "Przepoławia to coś na pół" zabijająć i brudząć Vel zielonym szlamem
+
+
+
+
+
+
+Anton znajduje przy pelerynie 24gp
+
+-Nie znam rasy która mogłaby wybudować taką strukturę
+-Miała być to jakaś siedziba
+-nie jestem w stanie określić wartości przedmiotu
+
+coś migocze na suficie pod jednym z kafelków => małej wielkości czarny opal
+
+Po wyjściu z komnaty docieramy do pokoju w którym jest straszny bałagan, papiery, mapy, zniszczone żyrandole i przyżądy alchemiczne po drugiej stronie pomieszczenia drzwi
+
+bard zaczyna przeglądać się w luserku które znalazł 
+
+Iso znajduje zagadkę => odp mapa
+
+Moon chce zbić bardowi lusterko po tym jak w nie spojrzał, nie udaje mu się
+
+Valmir atakująć drzwi zostaje odrzucony na 60ft
+
+Pod jedną z map kolejna wskazówka => "Mam wiele dziur ale trzymam wodę, czym jestem" => gąbka
+Bard w międzyczasie plecie dwa warkocze z brody
+
+W gąbce kolejna kareczka => lusterko
+w rączce lusterka jest klucz do drzwi
+
+
+Po wyjściu => wchodzimy w bardziej zniszczoną część, czerwone korzenie przedzierają się, atmosfera bardziej mroczna
+
+Vel prowadzi, kiedy idzie pod jej nogami jest bardzo dużo małych pajączków
+
+Iso chce zjeść pająki, Moon ją powsrzymuje. Pająki okazują się nie być pająkami, stworzenia o wielu nogach i czerwonych oczach, są to demoniczne stworzenia, nie jest to normalne dla miejscowej fauny
+
+Z lewej ścieżki wychodzi trochę więcej pająków
+
+Bard idzie dalej prawą ścieżką, pająki rozchodzą się spod jego nóg, pochodnia Moona którą odpalił też odgania pająki
+Pająki zabierają rzuconego ziemniaka w lewy tunel (tam gdzie jest więcej pająków)
+
+Kiedy idziemy nasze nogi zaczynają się przyklejać do podłoża (difficult terrain)
+
+Vel podlatuje do przodu, znajduje zejście w dół i drabinę oblepioną pajęczynami 
+Iso zjeżdża po drabinie (Iso upada po raz kolejny) taranując przy tym schodzącego barda (19dmg bard, połowa Iso)
+Anton skacze na bombe do dziury 
+(Cała 3 nieprzytomna)
+
+W dziurze:
+bezpieczne pomieszczenie, miejsce wartowników, stół i parę krzeseł 
+
+Proknor zmienia się w grzyba => biały grzyb z akcenami fioleowymi 
+
+Karmie Barda i Antona zieloną trawą 
+Podczas short resta Anton rozmawia z Moonem o teorii pola kwantowego, Moon traci 4 sanity XDD
+
+Vel percepcja => 5, wpierdala się w dziwnego rodzaju dziwny obiekt (masło maślane v2), kiedy mijamy zakręt uderza w wazon pełen pająków które obłażą ją i gryzą
+
+Drugi korytarz dochodzi w to miejsce, druga część rozwidlenia z wcześniej najprwniej też prowadzi w to miejsce
+Anton też zaczyna latać jak Vel
+
+Przed nami dużo większe pomieszczenie - Kania widzi że jest ozdobione, dużo czerwonych gałęzi i pająków, jest bardzo wysokie, sznurki wiszą w niektórych jego częściach, Kania podchodzi do sznurka
+W Kanię trafiają dwie strzały z czegoś co poruszyło się i zniknęło na suficie
+WALKA - małe pajajo i duże pajajo które od pasa w górę jest kobiecą abominacją
+promienie słońca z góry wypalają magiczne pajęczyny
+W pokoju po lewej kamienna statua smoko-rycerza z mieczem i potężnymi skrzydłami
+Potwór ucieka
+
+
+Posąg z poprzedniej sesji zrobiony pospiesznie, wygląda bardzo realistycznie, tak jakby coś zostało skamienione, widoczne zdobienia na zbroi oraz miecz który dzierży
+
+Dalszy korytarz zbudowany z łuku, dużo czyściej, na ziemi żółta kostka, zielona trawa w doniczkach
+
+Czerwona Żaba pojawia się pod posągiem z którą próbuje rozmawiać Moon. Po jakże owocnym dialogu przechodzimy do następnego pomieszczenia.
+
+Zbieranie trawy z doniczek
+Czerowna płytka - miotacz ognia w drodze do następnego pomieszczenia
+
+pomieszczenie to biblioteka - ksiązki, większość z nich podniszczona, za jedną z szaf przejście dalej (potem podniesiona i przestawiona przez potężne mięśnie Valmira)
+Vel znajduje magiczny płaszcz (plot armor)
+anygay => ludzie przeszukują i czytają książki, wszystko układa się w historię
+
+Księżna Kora i człowiek imieniem Dogan - urywkowe zapiski - to miejsce kiedyś nie znajdywało się w koszmarze a w królestwie (urwana nazwa), na Dogana została rzucona klątwa zaczęły mu wyrastać łuski, zaczął zmieniać się w smokopodobną bestię i dla bezpieczeństwa został zmieniony w kamień. Kora próbowała go odmienić. Ostatnie zapiski chaotyczne, szuka czerwonego kryształu z koszmaru, po odnalezieniu słyszy głosy, końcówka zapisana ludzką krwią. Wygląda na świerzą, krew po przejechaniu palcem rozmazuje się a potem magicznie wraca na miejsce.
+
+Księżna była wrażliwa i delikatna, bardzo łatwo było ją zranić fizycznie.
+
+Kiedy idziemy dalej korytarzami wychodzimy na bardziej otwartą przestrzeń, widać czerwone niebo i dwa księżyce będące obok siebie
+Na środku ogromne drzewo na którym rosną duże, pomarańczowo-czerwone owoce, podchodzimy do drzewa
+
+Anton => owoce biją ciepłem tak jakby było w nich coś gorącego
+
+Moon kładzie rękę na drzewie => oczuwa ciepło bijące od niego, on !mówi! że chce zebrać ten owoc
+Wejście którym weszliśmy zarasta się czerwonymi gałęziami, nie widzimy żadnego wyjścia
+Czuć wszechobecne szaleństwo, obok Moona wpatrują się dwa ślepia kiedy potężny czerwony drzewiec stoi tuż przed nim
+Drzewiec Atakuje Moona, z drzewa spada 6 owocoów,
+
+Anton wskakuje na Złokorę i zjada grzyba WildMagic - Anton stoi po środku areny cyrkowej wypełnionej publicznośćią, widzi zakapturzoną postać stojącą po środku, postać wskazuje teren dookoła, Anton widzi ciała towarzyszy na arenie, odczuwa przerażenie widząć zwłoki i postać ubraną w czarno-czerwoną szatę (też pewnie na czarno-czerwonym koniu) w kratkę stojącą po środku która tańczy, postać śmieje się a potem przemawia "Piękne przedstawienie nieprawdarz, historia godna swej tragedii, wszyscy których kochasz wszyscy tak skończą An(t)onie. Im bardziej się opierasz tym szybciej tak skończysz, nikt nie ucieknie przed naszą orkiestrą. Antonie wiesz kto doprowadzi do takiej tragedii, wiesz kto *zdejmuje kaptur, jest to Anton o czerwonych oczach* TO TY ANTONIE. Z publiczności wyjeżdza machina z czarnej stali ociekająca czerwoną cieczą" Antonowi wraca przytomność i ma dalej swoją turę.
+
+Kiedy stworzenie upada na ziemię nasza wizja rozmywa się a my zanikamy z tego plaina rzeczywistości. Słyszymy głos:
+"Ciekawe, jesteście całkiem interesującą bandą, nie spodziewałem się tego po was, poradziliście sobie z czymś co wymknęło mi się spod kontroli, szacun, interesujące"
+Widzimy wiszącego w powietrzu na jednym kolanie postać o dziwnej glutowatej formie
+Przed nami pojawia się postać Złokory, wyrywa z jej ciała czerwony kryształ a z niego wychodzą małe kryształki. 
+(Liczy luda) ah idealnie starczy
+"Jeszcze sie z wami zobaczę" 
+Budzimy się - Ah youre finally awake - mówi starzec 
+Jesteśmy w więzieniu, przykuci do ściany, przyniosły nas 2 pindy (niebieska i pomarańczowa), słyszymy tykanie które robi się coraz głośniejsze
+Nagle Jeb - ściana eksploduje, do pomieszczenia wbijają gnomy, widzimy kogoś przypominającego Bodo
+"Witajcie na imie mi Bruno, ale możecie mówić mi ojcze chrzestny"
+postanowił wydostać nas z tamtej dziury, mamy pomóc mu uratować synów, on nas uwolni a my jako wdzięczność pomożemy mu odzyskać kontrolę nad miastem i odszukać jego synów. Gnomy wydostają nas, znajdujemy się w dużym mieście, jest dużo dymu od najprawdopodobniej fabryk.
+Jest wieczór (nie ten Wieczór), ludzie wciąż są na ulicach. 
+
+WCZEŚNIEJ -Miasto zielonych wzgórz 
+
+## TERAZ - Szczere Pole
+
+Docieramy do małej, drewnianej zabudowy, między zabudowaniami (zabita dziurami decha). Bruno zasiada na krześle a gnomy sprzątają kwaterę.
+"Musimy omówić parę spraw"
+Siadamy przy stole 
+"Jak możecie się domyślić to nie jest główna kwatera" -> HQ zdobyte przez syndykat przestępczy który nas uwięził, aby ją odzyskać potrzebna pomoc nasza i Gnomów (Tomek, Waza(Nie mówi), Roberto i Najsielniejszy z nich Moris(którego nie ma))
+Kiedyś to miasto Bruno miał w ręce, wyrabiali świecące szkło, grupa tieflingów zaczęła siłą przejmować kopalnie i manufaktury a potem zaczęli przekupywać miejscowych polityków itp. 
+Bruno wysłał synów aby dowiedzieli się co się dzieje z rudą ale nie wrócili. 
+Zanim znaczniemy ich szukać trzeba przejąć kontrolę nad miastem, pierwszy krok - odbicie HQ
+Kwatera była w bardzo prestiżowej dzielnicy
+Moris na operacji pozyskiwania informacji. 
+
+Anton na swojej ręce dostrzega parę czerwonych linii biegnących w różne strony, próbuje je przeciąć ale tępi się na nich nóż, próbuje odjebać sobie rękę ale zatrzymuje się, na drugiej ręce też ma linie. Anton zjada grzyba.
+
+Narazie musimy odpocząć. Spanko. => 3 poziom
+
+NASTĘPNA SESJA
+ 
+ (Verser??)
+w nocy Iso znajduje się w jakimś miejscu pełynm świecidełek które połyskuje zieloną poświatą, za bladozielonymi oknami śnieżyca, widać skały jakby za oknami jakieś góry, w pokoju postać siedząca na fotelu i przeglądająca jakieś kartki
+Postać uwdziana w potęzną czarną zbroję ma liczne blizny i poszarpania - jest szaroskórnym orkiem
+"Rusz tą łepetyną jak wtedy kiedy spadałeś z drabiny" - postać uznaje wydarzenie za zabawne
+Znajdują się w wieży, na przedostatnim piętrze, Iso opowiada o towarzyszach
+"Mamy w drużynie włochatą krowę ale on znika"
+"Mamy też w drużynie nietoperza, ona jest mądra"
+"Mamy barda który zarywał do druidki ale poza tym się zesrał"
+"Mamy też filtr który się zmienia w grzyba"
+"Mamy jeszcze kota który mówi że nie jest kotem"
+
+Niedługo koronacja nowego króla Kyssi - postać z rozmowy Lordem Kyssi, za jakiś czas ma wysłać nam zaproszenie, realnie jest smokiem, na ceremonii będzie też Tartarossa (nazwany złotym chłopcem, postać go nie lubi) 
+ISO ZAPOMNIAŁ SPYTAĆ BOGA O OFIARĘ
+Postać zdmuchnęła Iso a ona się budzi razem z resztą
+
+Z drzwi wychodzi mała dziewczynka tiefling o ciemnoniebieskiej skórze, ok. 1'5m wysokości, ciemne długie blond włosy i szare oczy, ma krótkie sterczące do góry rogi i lekko spiczaste odstające do tyłu uszy, obok pojawia się mały pomarańczowy kot
+
+Bruno przedstawia postać jako swoją adoptowaną córkę, Smerfetkę (kot klakier), 
+
+Morisa dalej nie ma co powoduje lekki problem, powinien dziś być
+
+DOSTAJEMY MAPE
+
+
+Pochodzenie
+
+- Iso - pomiędzy szczytem Zulu a lasem, w jaskini
+- Moon - z lasu (możliwie buckwaldu)
+- Kania - chodzi tu i tam ale nie ma swojego miasta
+- Anton - Innos 
+- Bruno - szczere pole
+- Bard - pomieszkiwał wszędzie - "moi rodzice nie pojawili się na moich narodzinach" 
+- Valmir - głębokie jaskinie z wysokimi górami - (podał dwa pasma górskie z dwóch końców mapy XDDD)
+- Smerfetka - Step Laski
+- Vel - Velogród (twierdza Lorda obrońcy Kyssi - od kogoś czyje imie zaczyna się na Vel)
+- Ja - z resztek swojej pamięci kojarzę tylko piach ale niewiele więcej
+
+
+
+Plany => pójść do karczmy a potem do pizzeri Roberto (godzina 7)
+
+Kościół w mieście - specyficzny, dwa żółte witraże, jeden czarny - anioły bez twarzy{
+   //// !grupa mężczyzn obok, mówią o legendzie o bestii mieszkającej pod miastem!
+    świątynia jest kościołem 3 aniołków, są bogiem w trzech osobach
+    wokół sporo gnomów i tieflingów (gnomów więcej)
+    wchodzimy do środka - atmosfera inna niż na zewnątrz, chór śpiewający w tle, róznorakie zdobienia, freski,
+        odczuwalny spokój ale jednocześnie dziwny strach, uczucie nadchodzącej zza rogu zakłady
+    na freskach aniołki mają instrumenty i coś odgrywają, nie mają twarzy
+
+    Są to aniołki reprezentujące 3 atrybuty, szczęście, dobrobyt i chorobliwą śmierć, są bardzo blisko i są zazdrosne o siebie nawzajem stąd zawsze prosi się o modlitwę do każdego bożka
+
+    W trakcie rozmowy podchodzi do nas postać bardziej związana z tym kościołem, pyta czy przyszliśmy się pomodlić nazywa nas dziwną grupą kościół stoi tam dłużej niż mury miasta, boginie ponoć w tym miejscu bardzo lubiły przygyrwać
+
+    Valmir w ofierze składa trzy srebrne monety - po jednej do każdego
+
+    Bruno - 9gp
+}
+
+performance barda na zewnątrz - "O matko upośledzony próbuje grać" XDDD
+
+
+Kierujemy się dalej w stronę karczmy
+
+
+Spotykamy po drodze pewnego pijaczynę {
+    mówi o jakimś skarbie (one piece reference)
+}
+
+Karczma{
+    jakaś muzyka w środku, jest dość żywo jak na tak wczesną porę, możliwe że trwa jeszcze impreza z zeszłego dnia
+    Karczmarz - człowiek, wygląda na zmęczonego, podkrążone oczy
+    w środku głównie Tieflingi, które śpiewają i grają muzykę
+    Naszą uwagę zwracają 3 bardzo ładnie ubrane kobiety - Tieflingi
+    2 Gnomów ubranych w zbroję
+    zakapturzona postać w rogu - człowiek o krótkich włosach, w ręku trzyma jakiś przyżąd którego Moon nigdy wcześniej nie widział
+    dużo zniszczeń w karczmie ponaprawianych na szybko, potem domyśla się że to jakiś podręczny zegar
+    "Coś tak sądziłem że Moon pierwszy do mnie podejdzie" - ma bardzo ciemne czarne okulary zaczynają rozmawiać{
+        Nazywa się !!Apostrofa!!
+        To on sprawił że Vel nie spadła z krzesła
+        "Może mam plany w planach"
+            --Muzyka przycicha--
+        Postać ma czerwoną żabę na ramieniu
+        Ponoć nasza dwójka przyjaciół - Bodo, Bado żyją
+        Obecność postaci jest uspokajająca
+    }
+
+
+    Iso dostaje kartę dań (jasnoniebieski magehand ją podaje)
+        w karcie przede wszystkim mięso (karkówki z demonicznych bestii, rośliny z dalekich demonicznych krain)
+        
+    Vel widziała jak spada z krzesła ale siedzi w krześle (stało się coś dziwnego chyba)
+
+    Jemy:> 
+
+    Moon pyta o truciznę (alkohol XD)
+
+    -"Masz mi mówić ojcze chrzestny" ~~Bruno
+    -"Dobrze daddy" ~~Bard
+}
+
+Kiedy wychodzimy z karczmy zatrzymuje się czas{
+    wpadam na Iso - ona stoi w miejscu
+    słowa przestrogi "Nie pozostało mi zbyt wiele czasu, muszę spędzić go dobrze z towarzyszami"
+    Moon na mnie wpada i mówi że jestem Creepem XD
+}
+
+Udajemy się w stronę alchemika{
+    sklepikarz - krowi tabaxi z dziwnym siniakiem na głowie, uderzył się w szafkę a przynajmniej tak przypuszcza, postać jąka się mówiąc (dodaje kurw między słowami), chce sprzedać bardowi miksture zauroczenia (wódkę)
+
+    Bard czuje gówno w gaciach XD, na antona przez następne 20 dni nie działa alkohol a jego palec przestał być zielony
+    postać ma na sobie krowi dzwonek
+
+    Bard wychodzi - "Jakoś tu ładniej pachnie"
+    "Znasz bajkę o wężu - ssspierdalaj"
+
+    Ręcę Antona zacisnęły się na pieniądzach kiedy miał je pożyczyć Valmirowi
+
+
+}
+
+Sklep z magicznymi przedmiotami "Antykwariat magicznego Persiwala"{
+    Szczuroczłek Persiwal - długi nos, ubrany w jakąś szatę i kłóci się z kimś przed ladą, 
+    wielka zbroja cała pozłacana, obok dwóręczny młot bojowy, zbroja w ornamętach mocno przypominających ogień
+    "Ja nie potrzebuje tylko złota, potrzebuje też świętej wody" - rozmowa między sprzedawcą a osobą przy ladzie
+    (bard- w czymś pomóc?) Zbroja porusza się, dźwięk pocierania kamień o kamień, na twarzy maska z dwoma otworami na oczy które płoną, na ustach grymas - mój zakon nie sprzeniewierza pieniędzy (zakonnik strażników dróg spoza Kyssi którzy zajmują się też polowaniem na demony)
+
+    Moonowi przypomina się że to taka sama ornamentura którą widział kiedyś (+ stress)
+
+    Archeon potrzebuje trochę świętej wody, zakonnik chce sprzedać kompas za 350gold szczur chce dać 200
+
+    Kompas jest tak naprawdę lunetą przez której oba końce przechodzi koło, wszystko w ornamentach z motywem ognia obsydianowe i pozłacane
+
+    Sprzedawca zgadza sie po przekonaniu przez barda na 300 sztuk złota oraz daje rycerzowi świętą wodę, po czym macza w niej sztukę złota i ją zjada
+
+    Zbliżam się z lekka niepewnie do lady "Czy jesteś w stanie powiedzieć mi coś o *tym*" - nie dowiedziałem się nic 
+
+    350GP książka na charyzmę
+
+}
+
+Idziemy przez rynek{
+    Tomek przedstawia się ?paladynowi? z wcześniej
+    Postać podróżuje z miasta do miasta poszukująć demonów 
+    Zakon założył nową placówkę w Górach wysokich
+    Postać pyta o zbyt duży natłok ludzi - ostatnio dużo więcej ludzi się przewijało
+
+    Postać podchdzi do Valmira po tym jak spytał ją o młot, zaczyna płonąć fioletowym ogniem -- "O wielki władco młotków"~Valmir
+
+    Moon woła odchodzącą zbroję krzycząc "Apostrofa"
+        Zbroja obraca się przerażona słysząc imię
+            -Skąd jesteście
+            -Z drugiego kontynentu
+            -To nie ma sensu... Co tu robicie
+            -Jesteśmy łowcami demonów, to nasze odwieczne zadanie
+            -Kłamstwo!
+            -Ta? A niby co robimy
+            -Nie pamiętam ale wiem że nie do końca mówisz prawdę, zabijacie też niewinne osoby.
+            -A wiesz kim one były, trzymały z demonami bo myślały że coś od nich dostaną a jedyne co dostały to śmierć, zagłada i cierpienie.
+            -Wy też nie jesteście niewinni, Apostrofa, jest gdzieś w tym mieście
+            Zbroja łapie Moona podnosząc go - Idziemy
+
+
+
+            W pancerzu nikogo nie ma co widać po tym jak Anton robi dziurę w pancerzu, Archeon próbuje włożyć Moona w zbroję. 
+            Nagle znów zamiera czas i zbroja jest z (najpewniej) Apostrofą, Apostrofa ma czerwoną żabę na ramieniu, żaba zmienia się w miecz o czerwonym ostrzu
+            "Jak ode mnie zmarł złoty imperator na tronie tak wielu jeszcze zgładzę"
+            Archeon przeciwstawia się drugiej postaci "Każdym z 4 płomieni" 
+            Na Archeona spogląda postać wielkiego czarnego fenixa
+            Dwa czarne łańcuchy łapią Archeona za ręce i zaczyna opadać z sił
+            "Jestem panem czasu"
+            Kiedy Archeon myśli że jest bezpieczny znikają postaci i pojawia się przed nim inna postać, znikają, a 4 ręce z innej rzeczywistości zabierają go z tego wymiaru
+
+            Główne zadanie Archeona - nie trafić na Apostrofę XD 
+}
+
+
+# sezon 2
+
+co sie działo z nami w międzyczasie
+{
+	nasza wizja rozmywa sie, tak jakby powoli zanikała (włącznie z moonem)
+	{
+		wydaje sie nam że jesteśmy sami, w pomieszczeniu, ładnie udekorowanym (alabastrowy pałac)
+		wychodzimy na balkon i widzimy futurystyczne miasto, z budowalmi pnącymi się kilka kilometrów w górę
+		z balkonu spogląda też postać apostrofy, ubrana w luźne szaty spogląda w miasto i nagle z drugiego końca pomieszczenia dobiega głos człowieka 3/4 metrowego ubranego w piękny garnitur.
+		Postać ma rude włosy i odzywa się do apostrofy 
+		- I co dalej, i co bracie planujesz osiągnąć, czy ten zamek nie jest szczytem możliwości.
+		- Wiesz bracie mój, jeśli chodzi o wszytko co się stało jest niczym w porównaniu z tym co nadejdzie. Widziałem powstawanie światów i upadek, wojny małe i duże, przewidziałem koniec i jeśli jest coś co mogę zrobić to nie spocznę póki nie pokonam tego co idzie
+		
+		widzimy postać o okularach ciemnych jak noc, spogląda w górę na postać
+		- Za kilka lat będzie nam dane wziąć udział w wielkim przedstawieniu na wielkiej scenie, nie będziemy siłami we wszechświecie, ludzie będą się nas bać, bogowie będą się nas bać, (spogląda w naszą stronę), mam nadejdzie że będziesz mi w tym towarzyszyć moje ostrze.
+
+		
+		Sceneria się zmienia, widzimy pole bitwy.
+		Dość dziwna perspektywa, wydarzenia bardzo krwawe, ziemia czerwona od krwi a na nieboskłonie planeta w całości pokryta złotem, grunt pomiędzy krwią na ziemi srebrny niczym powierzchnia księżyca. Widzimy apostrofę dzierżącego inne orędzie niż zwykle - dwa ostrza.
+		Jedno z nich bardzo nietypowe, zakrzywione od razu za rękojeścią z lewitującym kamieniem i wskazówką odchodzącą od niego. W kolorach czarno-szarych.
+		Drugie przypomina choinkę (praktycznie czarne z szarymi przebłyskami)
+		Na przeciw apostrofy stoi morze przeciwników wszystkich ras. Apostrofa wystawia rękę i pojawia się oko, które się otwiera a przeciwnicy przed nim padają tak jakby dopadały ich halucynacje. Widzimy też psotać która zamiast hełmu ma czaszkę smoka, dzierży ostrze.
+		Żeńska postać w pięknej szacie z średniej długości czarnymi włosami o niebieskich końcówkach, władająca piorunami
+		Żeńska postać z długim mieczem
+		Postać o dwóch czerwonych mieczach które rozstępują ziemię
+		Postać o zbroi wykonanej z kości, spod zbroi żółto-zielona energia
+		Postać która szybko przebiega a przeciwnicy padają martwi
+		postać która młotem rozbija przeciwników
+
+		Po drugiej stronie
+		Postać potężna górująca nad resztą w złotej zbroi w czaski z płonącym ostrzem w ręce
+		
+		Apostrofa wymachuje ostrzem i czarne płomienie pochłaniają szeregi wroga
+		drugie ostrze wzmacnia jego sojuszników
+
+		Planeta zapada się i pojawiają się sfery planetarne
+
+		Apostrofa zgniata układające się w mapę swery w jedną (PPAP reference)
+
+
+		Wiecie że to nieładnie tak podglądać czyjeś wspomnienia nie? Tym razem wam wybaczę ale zważcie na to że niewiedza jest błogosławieństwem w tym świecie.
+		Kiedy wracamy do zmysłów scena wraca do tego co opuściliśmy zaczynając wizje
+	}
+
+	Wracamy do sceny z poprzedniego sezonu
+	{
+		zapada ciemność, przed nami apostrofa dzierży jeszcze inne ostrze o bordowej klindze i żółtej rękojeści ze złowieszczym żółto-brązowym okiem (przypomianjącym) na łączeniu
+		wieje zimny porywisty wiatr który sprawia jakby nam się kości trzęsły, tracimy połowę wizji i mamy połowę movementu
+
+		Scena akt 1 - wzrok
+		{
+			kiedy oglądamy mury fabryk wykonane z szarej cegły zdajemy sobie sprawę że jest to sytuacja bez wyjścia, wszyscy jesteśmy przerażeni (źródło apostrofa), z ciemności widać jedno światełko, oko z wcześniej wspomnianego miecza oświetlające apostrofę (nie możemy sie zbliżać do źródła ani powtarzać rzutu póki widzimy cel). Z naszej perspektywy widzimy głównie to "przeklęte" oko.
+
+			Anton - zakrywa oczy, mówi: Bardzie, za mną ale nie może się ruszyć.
+			Apostrofa - legendarna akcja - wyciąga ostrze z kamieniem i wskazówką, macha nim tnąc powietrze a potem chowa spowrotem. 
+			Ulrich - patrzę się nie mogąc się ruszyć (zapamiętać to). 
+			Bruno - pada na kolana do przodu ciągnąc za sobą swoją córkę, rozkłada 3 duże kupy monet i zaczyna się modlić
+			Valmir - przemawia do Apostrofy - "czy mógłbyś się przesunąć" (ma to zapamiętać)
+			Vel - wpatruje się przerażona w przestrzeń, dobywa rapieru i cofa się wciąż wpatrując się w przestrzeń (ma zapamiętać)
+			Bard - kuca, robi iluzje przez którą widzi (ma zapamiętać)
+			Kania - robi krok w tył, zasłania się tarczą (ma zapamiętać)
+			Iso - próbuje podejść do ściany odwracając się
+			Smerfetka - z brunem pada na kolana 
+			
+			w międzyczasie rusza się Archeon wymawiając te same słowa co wtedy i staje wyciągając rękę do przodu
+
+			MOON - nagle spogląda na to co się dzieje, słyszy głos, głos którego moon nigdy wcześniej nie słyszał. Jest to męski, wysoki, irytujący głos który oferuje mu pomoc, nie rozumie jego słów ale rozumie jego przekaz. Moon podświadomie akceptuje ofertę. Potem dostanie zadanie, które będzie mieć do wykonania. Pojawia się chwilowa pauza ale nie mając innej opcji moon akceptuje ofertę.
+			(wchodzi do sali po tym jak gadał ze staśkiem "ja pierdole"). Sens jest taki że ostrze które dzierży apostrofa jest ostrzem korupcji i powoduje niechciane konsekwencje kiedy się na nie patrzysz.
+
+			rzut na mądrość - +10 (nie wiemy skąd bonus)
+
+			Archeon sfailował. 
+			Ci którzy nie zdali - wzrok odbija się w nich i ich najgorsze myśli i otrzymują obrażenia równe 50% zdrowia
+
+			co widzimy:
+			Valmir - gobliny
+			Kania - gąszcza lasu
+			Ulrich - pułapki grobowca
+		}
+
+		Akt 2 - serce
+		{
+			Apostrofa wyciąga rękę, zaciska ją i uderza ruchem ręki Archeonem o ścianę.
+			Widzimy jak wokół ręki apostrofy pojawia się kolorowa łuna
+
+			Anton - bezpiecznie pod peleryną
+			Ja - Dromis, myśl o nim mnie uspokaja
+			Bruno - to nie może się tu skończyć
+			Valmir - jest wkurwiony i patrzy sie na łunę
+			Vel - opatula się skrzydłami aby jej było cieplej
+			Bjorn - wkurwia się że jest głupi bo krzak mu nie zadziałał, o co chodzi z łuną
+			Kania - ma zacine, był w wielu lasach patrzy się przed siebie zamyślony
+			Iso - przerażona, jeśli umrze to specjalnie dla Wersera, wszystko robi dla niego i przez niego ale pozostaje bez odpowiedzi
+			Smerfetka - przerażona, jeszcze nic nigdy nie poszło tak źle, w myślach pyta patrona o guidence, jej wezwanie pozostaje głuche
+			Archeon wstaje z kolan, wyciąga młot i przygotowywuje sie
+			
+			MOON - znów rozumie przekaz i zaczyna rozumieć pojedyncze słowa
+			"Apostrofa jest bogiem tym którzy upadli na dno a jednak wciąż postanawiają walczyć dalej, jeśli chcesz przetrwać to, uzbrój swe serce"
+			W całym tym chaosie po wizjach jest dość mocno zdruzgotany ale udaje mu się uspokoić myśli, zaczyna medytować 
+
+			wszyscy którzy mieli zapamiętać mają na karcie sobie zapisać "FATUM"
+		}
+
+		Akt 3 - moc
+		{
+			zapada bardzo mocny mrok, kiedy widzimy jak archeon wszechwybraniec stoi i przygotowywuje sie, apostrofa staje a jego postać przybiera nienaturalne kształty, widzimy nad miastem postać czarngo ptaszyska którego pióra są jak czarne szkło, kiedy wpatruje się w nas moon słyszy dźwięk klikania, tak jak dźwięk klikania rewolweru przez który przeskakują powoli - słyszy słowa "na lewo". Uskakuje a cieńka nitka niszczy ziemię, archeon odbija ją i niszczy też kawałek ściany.
+			Zaczynają tańczyć wokół nas czarne duchy. Oprócz tego dookoła nas pojawiają się czarne promienie.
+
+			Moon słyszy - czarny płomień pochłania energię, musisz użyć mocy aby się z niego wydostać. Używa bonefire (catrip, rzuca go jako spell 1 poziomu), czarny płomień znika, stress wchodzi mu na 99
+
+			Anton - usiłuje się usunąć z drogi, przewraca się a płomień podąża za nim lgnąc do niego, próbuje ugasić go peleryną (zapamiętać) 
+			Ulrich - słyszę dobrze znany mi głos, instynktownie rzuca zaklęcie za mnie "pogadamy o tym później"
+			Bruno - wyciąga wodę święconą i oblewa nią płomienie, udaje mu się je ugasić 
+			Valmir - próbuje zmniejszyć płomień dwókrotnie a płomień znika
+			Vel - rzuca zaklęcie i płomień znika
+			Bjorn - rzuca na płomień zjadliwe szyderstwo próbując go obrazić (spierdalaj czarnuchu)
+			Kania - głos bruna wyciąga go z transu, z jego oczu i ust jak i tych którzy otrzymali obrażenia w 1 scenie leci fioletowa posoka, borowik objawia się mu a płomień znika
+			Iso - rzuca divine sense, zaklęcie nie działa a w momencie rzucania oczy iso sie zamykają a ona czuje zieloną poświatę i przeskakujące iskry "radzę nie patrzeć bo oślepniesz" 
+			Smerfetka - próbuje zgasić ogień prestidigitation, ale słyszy głos swojego patrona - smerfetko mam dla ciebie za dużo zadań żebyś mi zniknęła (pstryka placami i ogień znika)
+
+			Bard - 2 punkty zmęczenia, wszystkie spell sloty są z niego wyrwane
+			Anton - umiera
+
+			kiedy widzimy potężną kreaturę stojącą nad nami, wokół archeona pojawiają się 4 promienie, w stronę Archeona lecą dwa łańcuchy a on krzyczy z bólu kiedy dostrzegamy postać apostrofy górującą nad Archeonem a obok niego jest świecąca się na czerwono żaba.
+			
+			Kiedy archeon pada na ziemie Moona ledwo mijają łańcuchy a moona coś łapie za kołnierz, z pędem wiatru pojawia się i jednym szybkim ruchem ręki odrzuca go do nas i rzuca na niego slow fall, postać wyciąga ostrze a łańcuchy pękają. Postać ma dziwne pajęcze wzory na sobie. Znika ciemność, znika sceneria wokół nas a za archeonem pojawiają się 4 ręce wciągając go gdzieś ze sobą.
+
+			Widzimy Antona leżącego w plamie jasnofioletowej posoki, kiedy się przyjżeć wiemy że jest martwy, 
+			ANTON BUDZI SIĘ I DRZE RYJA, jego ręce są jeszcze bardziej czerwone niż zwykle
+
+			Bard - Anton kurwa nie rób mi tego debilu.
+
+			W mieście nie widać zbyt wiele zniszczeń poza tą z lekko zniszczoną ścianą
+		}
+
+		w mieście
+		{
+			podchodzi do nas postać zmęczonego życiem gnoma - Bruno poznaje go - to Moris.
+
+			Moris ma czarne włosy, jest ubrany w płaszcz i stoicko poważnie się w nas wpatruje.
+			- Bruno gdzieś ty był, muszę ci coś powiedzieć. Zejdźmy z ulic idźmy do pizzeri Roberto.
+			zmierzamy w tamtą stronę przesuwając się między ścianami fabryk. Widzimy symbol kowadła z pająkiem na większości fabryk. Jest to symbol jakiegoś bóstwa. Mury są szare od sadzy z przebitkami żółtego. Idziemy dalej i podchodzimy do buynku który dziwnie odstaje od pozsostałych, wygląda jak rudera. Wchodzimy do środka i słyszymy na około dźwięk rozbrzmiewających trąb tak jakby ktoś przybył do miasta.
+		}
+
+		Pizzeria
+		{
+			idziemy na zaplecze.
+			- Moris co się stało
+			- Posłuchaj mnie, z decyzji lordów Kyssi przybiywa Generał Artavia Loventort, córka Lorda Zachodu przybywa osobiście rozprawić się z rzeczami dziejącymi się w mieście. Musimy być ostrożni, zamiast straży miejskiej będą tu rycerze. 
+			- Masz jakieś informacje?
+			- dowiedziałem się kilku rzeczy, poza artavią i syndykatem chodzą plotki o rytułałach satanistycznych które się dzieją po nocach
+			- Musimy zdecydować czym zając się najpierw
+			- trzeba znaleźć bazę, znalazłem dom, willę nawet ale nie wiem co może być w środku. Nikt tam od dawna nie zawitał. (Moris sam nie dał rady się włamać)
+			- Możemy to wykorzystać, syndykat zostanie osłabiony
+			- Jest generałem, musi być szurnięta, spróbujmy coś wymyślić jutro.
+
+			Jemy pizze, pijemy wodę, kiedy jemy słyszymy jak ulicami przechodzi iryujący głos szambelana
+			"Uwaga uwaga ble ble ble... oczyścić z rzeczy które się kryją ble ble, na życzenie lorda zachodu - Aleksandros, Lord wschodu - Veltafa"
+			Vel jest jak - kurwa i ma nadzieje że nikt nie skojarzy podobieństwa
+			Jest późna godzina, powoli zaczyna się ściemniać, siedzimy i próbujemy pozbierać myśli.
+			Moris - Nie wiem co żeście przeżyli ale ja wam polecam odpocząć. 
+		}
+
+		!!!"Im bardziej będziecie iść ubitą ścieżką przez las tym mniej będziecie wiedzieć o zagrożeniach w lesie"!!!
+
+		Wracamy do chatki w której wcześniej spaliśmy
+		{
+			Vel wlatuje na losowy dach, patrzy się na miasto, na niebo.
+			Valmir myśli o tym z czego zrobiony był tamten młot archeona.
+			Ulrich - próbuje bezskutecznie nawiązać rozmowę
+			Moon - mówiłeś coś 		Ja- nie, wydawało ci się :> 
+			Kilka osób idzie poszukiwać łaźni, Waza ma ich pilnować
+
+			pełnia która była w scenie z apostrofą znikła, wrócił dzień na co zwrócił uwagę moon
+			
+			Moon pyta mnie o boga, czy mam swojego - Nie powiem że nie wierzę w bogów ale nie zrobili w moim życiu dla mnie zbyt wiele dobrego. 
+		}
+
+		Idą do publicznej łaźni
+		{
+			Anton z kanią rozmawiają o tym jak nawrócić się na jego boga.
+			płaci za nich bruno - 15 srebra
+			bard próbując wejść do damskiej dostaje kopa w jaja
+
+			myju myju :D uwu
+			Anton próbuje rzucić fire bolta w barda ale jego ręka się zatrzymuje.
+
+			Smerfetka kiedy wchodzi do łaźni damskiej widzi też inną osobę, (rzut obronny na charyzmę - oprzeć się urodzie postaci), postać wydaje się być o nieziemskiej urodzie, staje i widać jej długie jasnobiałe włosy które opadają na jej ciało kiedy się obmywa, widać na niej lekkie niewielkie blizny. Siedzi przodem do smerfetki i się patrzy w kłęby dymu ulatniającego się z fabryk
+			Smerfetka - zerka na postać ale jeszcze się do niej nie odzywa, zwraca na nią uwagę ale nie wchodzi z nią w interakcję. 
+			Postać po dłuższej ciszy pyta - co możesz mi powiedzieć o tym mieście?
+			Smerfetka - To miasto, nie wiem o nim zbyt wiele, nie byłam w większości miejsc więc nie za bardzo jestem w stanie cokolwiek powiedzieć, z tego co mi wiadomo jeżeli chce się tutaj iść, zwłaszcza o tej porze warto mieć ze sobą kogoś innego, nigdy nie wiadomo co może się stać.
+			Postać - ale co możesz mi powiedzieć o ludziach w tym mieście, czy są tu jakieś dobre dusze?
+			Smerfetka - spotkałam się z paroma dobrymi osobami ale przeważnie nie można liczyć na dobroć z ich strony.
+			Postać - a czy ty jesteś dobrą osobą?
+			Smerfetka - powidziałabym że tak, z tego co wiem raczej nie czyniłam niczego złego ale z innej perspektywy może się to wydać komuś niezbyt dobre. Robiłam wszystko dla dobrego celu ale patrząc z boku moje akcje mogą wydawać się szare pod względem dobroci.
+			Postać - będę się zbierać, ale jesteś szczerą osobą, zapamiętam to sobie.
+		}
+
+		Wszyscy wracają do chatki
+		{
+			zapada noc, wszyscy leżymy w tym samym pokoju
+			Vel siedzi gdzieś na dachu i nie wraca do nas
+
+			Anton zaczyna rozmawiać z moonem
+			A - Chciałem do ciebie biec ale umarłem, opowiada o płomieniach które wyssały z niego moc magiczną
+			M - w trakcie całego tego wydarzenia coś się ze mną skontaktowało (dostaje migrenę). Pyta Antona czy wierzy w jakiegoś boga. 
+			A - zaintereswał mnie bóg Kanii
+			M - będę się musiał tym zainteresować
+			Valmir dołącza ale nie ma nic ciekawego do powiedzenia
+
+
+			Stasiu (o bardzie) "I oczywiście ten tłuk kartoflany musiał wyjść akurat teraz. Mi się rozładowywuje kurwa laptop."
+
+
+			Kiedy śpimy
+			{
+				w nocy budzimy się gdy słyszymy krzyki, dobiegają zewsząd, trzaski broni, słowa w językach których nie znamy, skandowania, pieśni i chaotyczne zderzanie się metalu o metral. Kiedy budzimy się noc jest niespokojna bardzo, próbujemy spać dalej
+
+				Vel widzi co się dzieje. Ogień pali się, stosy ciał leżą na ulicach, ludzie pozażynani na ulicach - Witamy w szczerym polu (Mariola czekała na wiedźmę)
+			}
+		}
+	}
+}
+
+
+NASTĘPNA SESJA
+
+bez zbędnych ceregieli
+nastaje świt
+{
+	budzimy się, nie ma vel(spała na dachu) oraz ROBERTO
+
+	moon wychyla się za drzwi, widzi ulice brudne od świerzej krwi, mnóstwo ciał ubranych w szaty, zbroje, po symbolach można poznać znaki gwardii która przybyła wczoraj do miasta
+	większość ludzi leżących na ziemi ma na sobie zbroje
+
+	Iso wychodzi przeszukiwać ciała
+	Przede wszystkim Valmir poza zapachem rozkładających się ciał czuje zapach dymu.
+
+	Zwykle w mieście nie dzieją się rzeczy na aż taką skalę.
+
+	Idziemy sprawdzić miejsce o którym wspominał wcześniej Moris. Jest to w tej samej dzielnicy co kościół Aniołków. 
+	Nie wiadomo co się stało z Roberto.
+
+	Moon wszedł w kałużę krwi. Vel zasłania się peleryną z kapturem. Udajemy się na rynek, z nadzieją usłyszenia jakiegoś przemówienia pani generał. Rynek jest pełen "ludzi". Generał stoi przed murem ratusza gdzie z ciał strażników ułożony jest napis. "WYNOCHA".
+	
+	symbol gwardii Kyssi z zachodu (z Kieltawy): pięciokąt, niebieskie tło, latarnia 
+	
+	symbol jest bardzo podobny do innego symbolu, który Vel widziała przez całe dzieciństwo, wieża na innym tle, niewielkie różnice (symbolu gwardii wschodu)
+
+	dostrzegamy postai
+	{
+		ma plecak podróżny (podobny do górskiego) postać w alabastrowej zbroi, dzierżącą długi miecz:
+			na zbroi postaci obok symbolu gwardii jest gwiazdka co oznacza kogoś z dowództwa
+
+		obok postać w okularach z niebieskim warkoczem trzymającą księgę
+	}
+
+	tłum skanduje kwestie, między innymi te, które są wypisane z ciał, bard zaczyna skandować z nimi 
+
+	pani generał sobie coś pierdoli, po tym jak odjebała mojrzesza na rynkowym betonie
+	{
+		Obywatele szczerego pola, słyszę wasze nastroje i uwierzcie mi że gdybym mogła wycofałabym się, ale poprzysięgłam wypełnić swoją misję i dopilnuję by żadna krew obywateli Kyssi nie została więcej przelana, dopilnuje by zapanowała wola króla, wprowadzone zostaną rządy nowego księcia, wracajcie do pracy a gwardia zapewni wam bezpieczeństwo.
+	}
+
+	ziemia pod kostką jest czarno-brązowa z elementami mroczno ciemnozielonymi
+
+	kiedy przechodzimy przez rynek spoglądamy na sklep w którym już byliśmy, drzwi są uchylone i prowadzą do wnętrza sklepu Alchemika Kota Stwosza. Wnętrze nie zostało pozbawione śladów poprzedniej nocy, widzimy kilka ciał, głównie w szatach i jedno z nich w zbroi. Wśród ciał nie widać Kota Stwosza.
+
+	bard kradnie miksturę leczenia (1d4+4 heal)
+
+	"powinni te tabaxi szczepić na wściekliznę" ~ w sklepie u kota (ja sam jestem satyrem)
+	Bruno płaci za miksturę którą ukradł bard, schodzi z niego fatum (a z nim słyszy śmiech 3 aniołków)
+	wychodzimy
+
+	pytam Morisa o coś, co ponoć ma mieszkać pod miastem ale on nic nie wie
+	mury miasta są nietknięte, ani zniszczeniami ani nawet kroplą krwi
+
+	drużyna bruna zawsze robiła to co konieczne, nie zawsze legalne ale konieczne
+
+	w fabrykach produkuje się broń przeznaczoną dla strażników dużo sielniejszych niż gwardia Kyssi:
+		wskazuje na symbol na murach, dwa kowadła na których siedzi pająk - lepiej z nimi nie zadzierać 
+
+	Vel patrzy się w niebo, coś jej przemknęło ale nie zdążyła się przyjrzeć, bardzo bardzo wysoko fragment nienaturalnie się poruszył
+
+	Zmierzamy w stronę strasznego dworu
+
+	Vel nie triggeruje ta krew z miasta, przypomina jej się kilka rzeczy, dla niej wygląda to mdle, jakby była przyzwyczajona do takich widoków, jakby za młodu widywała je często, ma wrażenie że przerażają ją małe ilości krwi szczególnie na niej, przypomina się jej tupanie butów i chlust krwi.
+
+	Dochodzimy do strasznego dworu
+	{
+		dworek o dziwo ma ogródek (mimo iż w mieście nic nie rośnie), do środka prowadzą dość spore drzwi
+		Moris od razu mówi że pójdzie poszukać pozostałej trójki i rozpłynął się w powietrzu (poszedł po mleko i fajki)
+
+		bard rozgląda się po ogródku i dostrzega kilka dużych bezlistnych czarnych drzew
+
+		budynek jest dwupiętrowy, oraz ma wierzę. Do okoła jest zabudowa (z jednej strony fabryka i bloki)
+		dworek jest dotknięty czasem ale nie ma na sobie oznak poprzedniej nocy
+
+		Bruno poznaje te dom.
+
+		Po czym poznać Syndykat
+		{
+			składa się w 90% z tieflingów
+			jak nas zobaczą to przyłożą nam broń do gardła
+			(nie mają charakterystycznej broni, używają czego popadnie)
+		}
+
+		Bruno niewidzialny wchodzi do ogródka
+		Bruno zagląda przez okno po prawej:
+		{
+			ujawnia mu się kuchnia;
+			w środku jest trochę śladów pazurów
+		}
+		Bruno zagląda przez okno po lewej:
+		{
+			ukazuje mu się salon z kominkiem;
+			widzi kilka poszarpanych rzeczy które nie wydają się być wielce stare, poszarpania wyglądają na takie zrobione przez koty
+		}
+		Bruno słyszy szelest w środku (najpewniej pomylił to z bardem wchodzącym przez furtkę)
+		wchodzimy przez furtkę na teren dworku (skrzypi gorzej niż mój kręgosłup z rana)
+
+		Valmir otwiera drzwi wejściowe, ukazują mu się schody prowadzące na górę i drzwi prowadzące do pokojów po lewej i prawej
+		Próbuje wyniuchać coś (22) -> dworek nie pachnie jak opuszczone miejsce
+
+		Kiedy wchodzimy naszych uszu dobiegają nawoływania dookoła z nas w języku którego nikt z nas nie rozumie ale jakby otaczała nas mroczna aura.
+
+		Iso idzie do kuchni szukać jedzenia ale jest dość pusto.
+		Bruno przestaje być niewidzialny kiedy Anton używa false life
+
+		Inkantaje brzmią jakby docierały spod nas ale nigdzie nie można dostrzec wejścia do piwnicy
+
+		Bruno zwiedza, trafia do jadalni w której jest postać
+		{
+			"czekałem tu na was"
+			-kim jesteś
+			-dlaczego miałbym mówić naszemu posiłkowi - ściąga kaptur, w płaszczu są trzy koboldy jeden na drugim a z innych miejsc wyskakuje na nas jeszcze kilka koboldów
+
+			na schodach pułapka, (pressure plate)
+
+			wokół antona pojawia się 12 iluzorycznych pszczół
+
+			przestajemy słyszeć dźwięki z piwnicy, słyszymy lekkie szelesty jakby ludzie wychodzili i nastaje cisza
+
+			z pokoju prowadzą 3 drzwi, do kuchni do jakiejś małej kapliczki i zamknięte do kaplicy
+
+			Valmir w kuchni nabywa słabej jakości patelnie
+
+			Bjorn wchodzi do kaplicy, w środku 3 witraże - jeden biały, drugi czarny a po środku jeden czarno-biały zawijający się w literę 's' za ambonką (a raczej małym konfesjonałem)
+			Bjorn podchodząc czuje przymus uklęknięcia (niczym po użyciu command)
+			jego oczy przykówa widok drzwi, a za nimi schodów prowadzących w dół
+			
+			schodzimy na dół, pomieszczenie jest kwadratowe a na środku jest krąg (jakby rytualny), nie przypomina mi on niczego
+
+			idziemy w stronę drzwi, które dalej schodami prowadzą do trapdoora i na zewnątrz na tyły ogrodu
+			kania zamyka trapdoor, gasi świeczki (słyszy szepty), po czym zamyka drzwi
+
+			wracamy do środka zwiedzać górę
+
+			na lewo 4 pokoje, wszystkie pokoje mają w sobie 3 łóżka (18 łóżek)
+			na prawo znajduje się łazienka
+
+			dla bruna te ściany wydają się dziwnie znajome
+
+			na piętrze z tyłu znajduje się balkon, dodatkowo z balkonu jest wysuwana drabina która pozwala szybciej zejść do ogrodu
+
+			dodatkowo na dole kolejne 3 pokoje
+
+			na końcu korytarza obraz, obraz ścięty w pół (nie widać góry), całe ściany poniszczone
+
+			Bruno patrzy się w obraz, przypomina mu się kilka scen, dobrze zna te ściany, dobrze zna ten dwór, należał on kiedyś do niego, zna dziury które sam uczynił w tym korytarzu, dobrze wie że sam zniszczył ten obraz i kiedy tak spogląda na smerfetkę próbuje się opanować ale coś z tyłu jego głowy karze mu niszczyć wszystko na swojej drodze, ma być cieniem który pozostawia po sobie tylko zniszczenie i ciszę. Idzie do swojego pokoju. 
+
+			Moris znalazł pozostałych ludków z pizzerii
+
+			Jemy w jadalni, Moris wyprasza bruna.
+			- Co wiecie o Bruno. Opowiem wam historię bruno więc posłuchajcie. Kilka lat temu ten dwór jak i on sam byliśmy bardzo znanymi właścicielami w dzisiejszym szczerym polu (mówi starą nazwę). Był on kiedyś jednym z najlepszych zabójców, on i jego żona. Niestety kilka lat temu zdarzył się straszny wypadek i jego żona zmarła. Bruno od tamtego czasu nie jest taki sam, nie pamięta wielu rzeczy. Cały jego ekwipunek gdzieś schowałem, jeśli kiedyś do nas wróci oddam mu go ale dziś nie jest i długo nie będzie jeszcze taki sam. Mówię to wam w zaufaniu. To czego chce to powrotu mojego szefa. On jedyny wie kim był Dymir (prawdziwą tożsaość), on wie co się działo wyżej, wiedział po co są te fabryki. Potrzebuje żeby odzyskał wiedzę o tym kim jest Dymir, człowiek który nie istnieje a on go znał. Nie przejmujcie się strażą, dom jest nasz. Witamy w szczerym polu.
+
+			Zasiadamy do posiłku, po środku siedzi bruno a po samym końcu stołu jest smerfetka. Mija kolacja, a my udajemy się do poki spać. Ten dom jest bezpieczny, przynajmniej na razie. 
+
+
+			Ja w pokoju z Iso i Vel.
+			
+			Idziemy spać. Wszyscy mamy dość podobny sen.
+			Jesteśmy na pustyni. Leżymy tam wszyscy, większość nie może się ruszać, ja tylko stoję obok a na przeciwko mnie nagle z piasku zaczyna wyłaniać się potężna postać, kiedy się wyłania widzimy wielką sylwetkę węża a z jego pleców wielkie szkieletowate skrzydła. Patrzy się na nas a szczególnie w moją stronę.
+			- Oh, więc wreszcie chcesz ze mną porozmawiać.
+			- Trochę się wydarzyło ostatnim razem, myślę że jestem wam winny pewne wyjaśnienia, ale nie będą darmowe, będzie to mieć swoją cenę Ulrichu. 
+			(Dostajemy poziom ASI i feat)
+		}
+	}
+}
+
+następna sesja
+{
+	pustynia (ciąg dalszy z poprzedniej sesji)
+	{
+		- nie masz mocy, którą byś mógł się ze mną pdzielić
+		- to czego chcesz?
+		- zaufania
+		- po takim czasie chcesz zaufania?
+		- tak to bywa w świecie bogów
+		- uznajmy że ci zaufam.
+		- dobrze, może zmieńmy trochę scenerię bo widzę że wam się trochę niedobrze robi
+
+		Pojawiają się ściany okrągłego pomieszczenia i owalny stół z 12 krzesłami, jedno krzesło (na podwyższeniu) wokół którego opleciony jest wąż i kiwa głową w stronę stołu.
+
+		ściany pomieszczenia wydają się być dziwnie znajome, lecz z lekka inne od tych które są w moim ostatnim wspomnieniu
+		spokojna muzyka dobiega naszych uszu, tak jakby instrumenty grały w ścianach
+
+		widzimy jak wąż powoli przemienia się w postać - widzimy stojącego przed tronem wysokiego elfa którego połowa twarzy (i ucho) są gadzie. Postać rozkłada się na tronie. 
+		- Jak to dobrze jest znowu siedzieć na własnym tronie. 
+		(...) (nie przedstawisz mnie)
+		- Na imię mi Anatol Vecna. Bóg zdrajców i wiecznych knowań. Nie kojarzycie mojego imienia? Przecież wisi na wszystkich mapach Kyssi.
+		Bard *czy bóg potrafi czytać w myślach*
+		- Tak potrafię czytać w myślach, jak bym miał planować wszystkie niecne knowania. Byłem kiedyś jednym z władców tego kontynentu. Rządziliśmy tym krajem razem z (poprzedniczką) Kyssią, ja pustynią Anatola, ona Kyssią.
+		- Dlaczego już nie rządzisz Kyssią 
+		*gotuje sie w Vecnie*
+		- Może najpierw porozmawiamy dlaczego was tu wszystkich zebrałem.
+		- Przez tego debila
+		- Jeszcze niedawno nie obchodziliście mnie ale okazaliście się być przydatni, nie wiem dlaczego ale Apostroja chciał żebyście przeżyli. Odpowiadając na pytanie dlaczego już nie jestem władcę, przybyła do tego kraju kiedyś kobieta, (widać po nim złość), córka Apostrofy, władczyni Kyssi, Pani w Lazurowej Czerni. Jeśli chodzi o jej imię, Apostrofę spytajcie, może wam odpowie. Kilka wieków temu osobiście przybyła by się ze mną rozprawić. Ona, smok burzy - Werser oraz Veltafa. 
+
+		kiedy to mówi widzimy piękną krainę, stoimy na jakimś statku, widzimy ludzi i widzimy jak na brzegu stoją 3 postaci wymienione przez Vecne, Czarnego smoka, widzimy półdiabła o bladej cerze który ma dwie zagięte szable, czerwono-czarna szata jego wydaje się być droga a jego wręcz nieumarłe oblicze spogląda przed siebie, ostatnia postać o długich czarnych włosach, przypominamy sobie scenę wali z Apostrofą widzimy postać ciemna jak nocna tafla wody, Pani w Lazurowej Czerni
+
+		- I przybyła wtedy ze swoimi sługami Pani w Lazurowej Czerni i to kiedy Werser i Veltafa zajeli sie sługami ona sama, przyszła się ze mną rozprawić. Wiele przedmiotów magicznych wtedy pękło w trakcie walki.
+		Kiedy mówiła ziema się rozstępywała a gdzie wskazała ręką udzerzały pioruny. Co stało się potem nie mogę powiedzieć. Pod koniec rzuciła na mnie klątwę kiedy mnie pokonała, moje ciało zamieniła w płyn i zamknęła w grobowcu który zapieczętowała. Cały ocean ruszył i zniszcyzł moje królestwo. Pozbawiła je całe wody i zostało pustynią. Tak wyglądał mój upadek. Już myślałem że skończę swoje istnienie zamknięty w grobowcu chroniony przez sługi Lazurowej Panii. Pani w pewnym momencie znikła a pieczęć osłabła. Wasz towarzysz Ulich wszedł na pierwsze piętro i zdobył jedną z moich części.
+		Znam sposób by sprawdzić czy wciąż żyje.
+		"Kiedy Pani w Lazurowej Zbroii mnie pokonała *tu się urywa* " - Ja i Vecna zaczynamy sie krztusić wodą
+		Albo nauczyła się żeby jej magia pozostawała po śmierci albo wciąż żyje, ale nie wiem dlaczego pieczęć osłabła. Możecie skończyć biadolić, ledwo utrzymuję tę rzeczywistość wykorzystując ten fragment w Ulrichu. 
+		- Co wiesz o Werserze.
+		- Jest sługą Lazurowej Pani, i potrafi ciskać piorunami.
+		- Ja jestem jak to się nazywa w języku (imperium) dzikim bogiem. Znałem poprzednią panią Kyssi. Próbowałem ją zabić więcej razy niż jest gwiazd na niebie, jest bardzo przebiegła. Została wreszcie pokonana przez innego boga z panteonu Apostorfy - jego brata, smokobójcę.
+		- Jaka jest hierarchia bogów.
+		- Niewiele wiem, bogowie zawsze się dzielili, na szczycie zawsze był cesarz, za moich czasów było dwóch. Apostora i Pani w Lazurowej Czerni. 
+		- Bóg młotów? (pytanie Valmira)
+		- Pani w bieli, żona Apostrofy.
+		- Pytanie o Artawię Wolentort.
+		- O Wolentortach słyszałem, August/Aleksander Wolentort.
+		- Dlaczego Pani w Lazurowej Czerni chciała cię zabić.
+		- Dowiedziałem się jak mnie zapieczętowywała, pani w Lazurowej Czerni jest patronką ludzi zdradzonych.
+		(Vecna - ogień, Pani w Lazurowej Czernii - woda)
+		Sytuacje mniej więcej sprzed kilku wieków.
+
+		DC20 Wisdom => wszyscy wychodzą (budzą się) => zostaję ja i Anton.
+		Słyszymy pstryknięcie palcami a nasi towarzysze usypiają. Anton jakimś szczęściem nie zasnął.
+		Przestrzeń dookoła nie jest już taka sama, widzimy wszystko jakby było wykonane z pyłu gwiezdnego. Vecna stoi jak sparaliżowany, w jego oczach widać gwiazdy, moje ciało.
+		Mówiłam wam że będą konsekwencje jeśli będziecie zaglądać w czyjeść wspomnienia. (Coś wbija mi się w nogę - permamente utrudnienie w rzutach na DEX)
+		Postać ubrana jakby w gwiazdy spogląda na Anatola. 
+		- Wiedziałeś że tak będzie jak dasz im zajrzeć w swoje wspomnienia.
+		- Budzi nas przerażające uderzanie metalu o ziemię, jakby maszyneria uderzała równo w ziemię w rytm jak maszerujący żołnierz. Słyszymy krzyki w nieznanych nam językach, słyszymy jakby się coś rozkręcało i świst jakby miliarda lecących kul.
+
+		Kania wygląda przez okno, kątem oka widzi potężną kroczącą maszynę i ludzi z bronią idących za nią.
+		Co jakiś czas w oddali słychać takie same dźwięki, jakby w róznych miejscach w mieście. 
+		Idziemy spać dalej. 
+
+		Wraz z long restem:
+		Moon - Observant
+		Vel - Warcaster
+		Ulrich - Polearm Master
+		Anton - Lucky
+		Bjorn - Fey Touched
+		Valmir - charger
+		Bruno - Fade Away
+		Iso - Gem Dragon => Aberrant Dragonmark
+		Kania - Odporny
+		Smerfetka (Budzi się i ma coś do powiedzenia) - Inspiring Leader
+
+		Z piwnicy dobiega złowrogie czerwone światło i dochodzą ze śrdoka dziwne dźwięki.
+		Bard łapie za klamkę - czerwone światło znika a pomieszczenie jest takie jak wcześniej. Szepty też ucichły.
+
+		Bard w piwnicy podchodzi do szafki a ta otwiera się i łapie go. Walka.
+		WildMagic - na plecach Antona pojawia się blizna od wypalenia w postaci szachownicy
+
+		Smerfetka rzucała detect magic - obraca się a w outarzu ktoś stoi, zgarbiona postać z długim nosem 
+		- (zaciera ręce) Smerfetko, dawno się nie widzieliśmy, wiem że wykonywałaś moją wolę, twoje działania na pewno zostaną docenione. Co cię znowu sprowadza do mojego magicznego kręgu. 
+		- Wczoraj doszliśmy do tego budynu ale byli tu inni.
+		- Ah tak, inni wyznawcy moi w tym mieście, ale wyszli, zmienili swoją lokalizację, kontynuuj zadanie które ci powierzyłem a czeka cię nagroda. Czy chcesz jeszcze coś ode mnie Ssssmerfetko? Jak zawsze mało rozmowna ale to nic, jeszcze pogadamy, mam wobec ciebie wielkie plany, a teraz już idź, czekają na ciebie. 
+
+		Vel podlatuje po jedzenie w kuchni.
+		Moris: Ah wygląda znajomo, wyglądasz jak (patrzy się na nią) ... nieważne. - Wyciąga zeszyt i coś zapisuje.
+
+		Moon idzie się ogarnąć do łazienki - jest tam duże lustro.
+		Zaskoczony, w lustrze nie widzi tego co zwykle tam widział a kątem oka zobaczył sylwetkę postaci której sylwetki jeszcze nie kojarzy ale głos słyszał. Postać jest masywnej budowy, szata jej jest głównie czarna a zamiast głowy ma długą lisą czaszkę i poroże na głowie. Przy pasie postać ma dwa rewolwery, macha do Moona i znika. 
+
+		Ktoś puka do drzwi, po otwarciu drzwi przez Valmira na ziemi leży mała szpilka (wygląda jak akcesorium do włosów). Po podniesieniu szpilka nie ma wagi. 
+		Enchantment magic
+		Moris: przecież to jest fragment myśli -> Bruno, Bruno z jakiego domu jesteś, komu służysz. Bruno, jakie jest twoje pochodzenie. Jesteś z domu Dymirów. Jaka jest zdolność domu Dymirów.
+
+		Bruno rozciąga szpilkę i wkłada ją sobie do głowy.
+		Bądź pozdrowiony Bruno, od twojego dobrego kolegi Bruce'a. Zostawiłem ci prezent niedaleko domu. Idzie i odnajduje (chyba coś koło) 500gp
+	}
+}
+
+ogłoszenia =>
+	wigilia koła
+	sylwek na wawrze
+
+Następna sesja
+{
+	powtórka
+	{
+		całkiem ciekawy sen, noc i ekscytujacy poranek (walka z mimicami)
+		zjedliśmy śniadanie i przypominamy sobie wydarzenia z nocy, dziwne strzeły które dobiegały z zewnątrz, bruno dostał szpilkę
+	}
+
+	po śniadaniu
+	{
+		moris nie wie nic o wydarzeniach z nocy,
+		nikt nie wie co jest w fabrykach i co się w nich dzieje
+		ktokolwiek lub cokolwiek tam jest mocno ceni sobie prywatność
+		1 grupa wychodzi, 2 zostaje
+	}
+
+	wychodzący (w tym ja)
+	{
+		przykuwa naszą uwagę to iż słyszymy jakieś pieśni
+		zauważamy podobną makabrę która spotkała nas dzień wcześniej lecz tym razem zamiast ryceży widzimy jednostornną masakrę - ludzi zwyczajnych, szemranych
+		możliwe że zapadła i zapanowała żelazna ręka (słowa stasia)
+
+		ściany fabryk są podniszczone ale unosi się przy nich lekka mgła a ściany się z lekka same zasklepiają.
+		słyszymy, że pieśni dobiegają z wnętrza fabryk
+
+		słyszymy dźwięki maszynerii i jakby pieśni kapłanów kuźni wykuwających artefatkty
+
+		Iso próbuje zajrzeć do środka przez szparę w ścianie, kiedy zerka widzi dużą ilość dymu/pary (nakładającej się na ścianę)
+		Jest w stanie zerknąć do środka i widzi (przede wszystkim) ludzi (ale poszczególne inne rasy) (robotników) którzy z młotami stoją i wykuwają coś, śpiewając w języku którego nie rozumiemy
+
+		Iso próbuje przerzucić kamyk do środka ale on zatrzymuje się on w ścianie i staje się jej częścią
+
+		Zniszczenia idą z wewnątrz miasta w stronę centrum, widać też ślady st00pek (wiem że patrzycie w te notatki st00pkarze to dla was)
+
+		Druga grupa do nas dołącza, Bruno ma na oczach okulary które pozwalają mu cokolwiek wiedzieć (bo oślepił go blask Antona)
+
+		Idziemy po śladach w stronę centrum
+		Zauważamy że tutaj w mieście bardzo duża ilość ludzi nosi ze sobą biżuterię w Lazurowym kolorze (hehe Lazurowa dziwka reference strikes again)
+
+		Widzimy też budynek który wcześniej nie przykuł naszej uwagi, wygląda jak kościół, dość niedawno zniszczony kościół który wyznawać mógł najprawdopodobniej Lazurową Panią (ah shit here we go again... to jak brzmiał ten mój komentarz przed chwilą?)
+
+		Budynek wygląda na opuszczony. (nie dziwię się też bym miał jej dość)
+
+		Valmir podchodzi do kościoła i stara się zaglądnąć do środka, w środku jest na tyle ciemno że nic nie udaje mu się dostrzec
+
+		Anton Iso i Bjorn wchodzą do środka. W kościele panuje magiczna ciemność. Dla innych wygląda to tak jakby stali w Drziwach. Ja widzę jakby weszli do środka ale ciężko mi dostrzec wnętrze. Do ich nosów szybko dociera zapach papierosów. 
+		Kiedy oni podchodzą widzą:
+			Bjorn nie widzi nic; (oślepił go blask jego ego)
+			Reszta jest w stanie określić kształt kaplicy i skąd dobiega zapach papierosów.
+			Słyszą nagle jak coś znajduje się za nimi, instynktownie się odwracają ale nikogo tam nie ma, kiedy się odwracają (Anton robi Con Save - 14 - fail) jest ogłuszony kiedy coś z nagłą prędkością uderza go w brzuch, potem Bjorn słyszy obok swojego ucha klik i czuje jak zimna stal przyłożona jest do jego głowy. Postać znów zaciąga się papierosem 
+			"Żadnych głupich ruchów"
+			Iso - kim jesteś
+			Postać uderza Iso w kark w tamtym momencie ale nie jest ogłuszona, za to słyszy potem drugie klik przyłożone do jej głowy.
+			- Po co tu wchodziliście?
+			- Ineteresowało nas to co jest w środku
+			- Wyjdźcie stąd po prostu.
+			Wychodzą kiedy kolejne uderzenie spada na Antona i go odogłusza, za nimi drzwi się zamykają
+
+		Mi pojęcie broni palnej gdzięś dzwoni ale nie wiadomo w którym kościele (pewnie w tym na przeciwko ale osobiście wolę tam nie wchodzić)
+
+		Kiedy przyglądamy się ciałom na ziemi to widać na nich dziwne runiczne znaki => dla Vel wyglądają one na symbole magiczne które mają zwiększać jakieś aspekty fizyczne
+
+		Kania w międzyczasie widzi że Proknora (grzyba) nie ma w plecaku
+
+		Idziemy dalej po śladach w stronę centrum
+		Na głównym placu zniszczenie zrobione przez panią generał jest już w pełni zregenerowane, przy ratuszu siedzą strażnicy z symbolem latarni na naramiennikach
+		Jest też kilku innych z symbolem wieży strażniczej na fioletowym tle (symbol lorda wschodu - Veltafy)
+
+		Przed ratuszem widzimy jak wiszą nowe symbole, właśnie symbole Veltafy
+		Vel wydaje się być odrobinę zakłopotana
+
+		Bard podchodzi do bramy ratusza, próbując poderwać strażnika. 
+		- Czego ode mnie chcesz?
+		*Bard wyjmuje butelkę wina*
+		- Może dałbyś się zaprosić na lampeczkę wina, po służbie?
+		- Po służbie, chętnie.
+		(Elf - *facepalming* o kurwa, znowu)
+		Anton - be like: dawno nie spędzałem z nikim nocy, podchodzi do elfa
+		- Heeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeej (pojebało go, przy takim długim e to nawet ja bym się zaczął odsuwać, rzucił 13 (https://i.imgflip.com/47eqrr.png))
+		*Elf musiał mocno przemyśleć swoje decyzje życiowe po czym machnął na Antona ręką, może dziś nie miał ochoty na homo*
+
+		MEANWHILE MOON PRÓBUJE SIE WPIERDOLIĆ NA RATUSZ (17 na skradanie XD (i to niby Antona pojebało))
+		Kania widzi jak Moon tam wszedł xDDDD (skisne szybciej niż borowiki w plecaku kanii)
+		
+		Moon rozgląda się po ratuszu (po prostu kurwa xD, https://www.youtube.com/watch?v=18Kr_v3y6Zo , nie mam nic więcej do dodania)
+		{
+			Kiedy wchodzi do środka witają go pięknie zdobione pomieszczenia o drewnianych wykończeniach. W pewnym momencie widzi jak w jednym z bocznych pokoi ktoś parzy herbatę, widzi jak wyciąga małą buetleczkę i dolewa kropelkę do herbaty po czym chowa ją spowrotem. Potem bierze tacę i idzie korytarzami na górę i mówi:
+
+			- Pani Artawio, herbata gotowa.
+
+			Moon widzi jak postać powoli zanika w korytarzu na górze, Moon idzie za nim. (14 stealth)
+			(Kurwa ktoś mu jebnie zaraz,  https://www.youtube.com/watch?v=IBFz7G2YfgI )
+			Moon słyszy głos Pani generał:
+			- Co to za dźwięki
+			- O wiesz pewno wiatr, kazałem przewietrzyć budynek z uwagi na pani zdrowie
+			MOON CHCE WCHODZIĆ XD
+			Kątem oka Moon widzi postać, którą ostatnio Moon widuje często, postać kiwa głową przcząco 
+			
+			G: Jestem tak zmęczona po tej nocy
+			S: Dowodzenie jednostką specjalną może być męczące nawet dla takiej istoty jak pani.
+			G: Nareszcie przekonaliśmy też tego zgrzybiałego Veltafę do współpracy. Rozstawiliśmy maszyny żeby pozbyć się zakonu wiedźm które tu są, maszyny kroczące na dwóch nogach stare ale potężniejsze niż większość ludzi na tym świecie mogące wystrzelać tysiące kul na sekundę. Niechaj wreszcie wybiorą tego nowego króla Kyssi i niech ten chaos się wreszcie skończy. Książę William będzie dobrym władcą. *Pije herbatkę, zakaszlała* - Możesz już iść, mam dużo papierkowej roboty.
+			Moon ucieka i wychodzi z ratusza, do strażników mówi 
+			- Czołem!
+			STRAŻNICY DEBILE SIĘ NIE ZORIENTOWALI ( https://i.imgflip.com/614o43.png ) (pewnie wciąż myśleli chujami po interakcji z bardem)
+
+			Moon widzi z okna jak ktoś stoi i się na nas patrzy, Pani Generał stoi i zasłania zasłonę.
+
+			"Moonie jesteś najbardziej naiwnym ale najbardziej skutecznym szpiegiem jakiego znam" ~Anton 
+		}
+
+
+		Bruno prowadzi Barda do Krawca Pluka, aby mógł kupić ubrania na randkę
+		{
+			Za ladą stoi ptako-człek o małych skrzydłach, brązowym pieżu, każde słowo które wypowiada innym głosem.
+			"Witajcie - u - Kluka - co - mogę - wam - podać?" => (postać to Kenku, ptaki które nie potrafią latać ale za to potrafią mówić głosami innych, jednocześnie często nie potrafią mówić własnym głosem)
+
+			Bard kupił sobie coś ładnego (zielony garnitur ze złotymi zdobieniami przy klapach)
+
+		}
+
+		Jak rozglądamy się po niebie dym który zwykle zasłaniał nam niebo wydaje się być bliższy mgle niż dymowi tak jak wcześniej.
+
+		Kiedy Moon przygląda się niebu dostrzega coś czego nie dostrzega nikt inny. (we wonder what that is)
+
+		Idziemy do karczmy - nazywa się "U Pana Boga za piecem" (kurwa prawie jak zakrystia, może też będzie pukanko- waaaaaaaaaaaiiiitttt a minute)
+		{
+			W karczmie się dzieje i jest dość żywo
+
+			Za barem stoi człowiek o podkrążonych oczach. 
+			Obok karczmy jest tablica ogłoszeń z jedną notą -
+			"Zadanie dla drużyny która podejmie się zwalczyć złe bestie w lesie 100gp, więcej informacji u straży przy południowej bramie"
+
+			Valmir daje Antonowi Piwerko (ukradzione z pownicy Bruna o czym Bruno wspomniał 4 razy)
+
+			Widzimy jak strażnicy wchodzą i siadają przy jednym ze stołów (nie poznajemy ich poza jednym wyjątkiem - będzie bard moment x3 )
+
+			Widzimy jak do karczmy wchodzi pewna postać, dość wysoki mężczyna o blond włosch, zaroście i piwnych oczach, zasiada w miejscu w którym wcześniej zasiadał Apostrofa
+			Postać rozkłada papiery na stole i zaczyna je czytać. Zdaje się że postać nie zwraca na nas jakiejkolwiek uwagi. 
+
+			Iso podchodzi do barmana i pyta o typa z fajką.
+			B: - Widmo, nie pytać.
+			Iso próbuje go przekonać (nieudany rzut)
+			Bruno do barmana:
+			Bruno: Czy wiesz co się działo wczoraj w nocy.
+			Barman: Moje uszy głuche gdy nie słyszę dźwięku monet.
+			*podsuwa mu 15 monet*
+			Barman: Moja pamięć szwankuje
+			*do 18*
+			Barman: Ciężko się żyje w tym mieście
+			*do 21*
+			Bruno: Kto po co i co.
+			Barman: Pani generał broń kult wiedźm. Kult się rozroił ale sądząc po wczorajszej nocy będzie ich niewielu. Czczą jakąś wiedźmę, Eureka się nazywała. Być może parę złotych monet odświeży moją pamięć. 
+
+			Barman podchodzi do palacza i podaje mu filiżankę kawy. 
+
+			Moon: Jakich rzeczy najczęściej dodaje się do herbaty.
+			Barman: W tym mieście, trucizny albo lekarstw.
+
+
+			Meanwile bard z guardem sobie plotkują o życiu w tym mieście. Bard podpytuje o rzeczy z armii ale guard niewiele wie.
+			"Bardzo źle mi sie spało przez te huki poprzedniej nocy, może chciałbyś mi pomóc" (https://www.youtube.com/watch?v=iaVurwBf6Wg)
+
+			Bard + Guard:
+			B: gdzie będziemy spać
+			G: znam fajne miejsce
+			(bard 19con, wątek się urywa xD)
+
+
+			Valmir podchodzi do typa z fajkiem i pyta czy musi tak palić (http://żal.pl)
+			Kiedy tamten mu odpowiedział to Valmir się z lekka zesrał i życzył mu miłego pobytu xD.
+			(typ ma conajmniej +40 śledztwa, łączy kropki wykładniczo, Valmir dostał wylewu)
+
+			
+			
+			jakiś pijany typ (młody przystojny z czzarnymi włosami i lekkim wąsem) łapie Vel i chce ją wyciągnąć do tańca, Vel przerzuca typa na Iso. 
+			Iso idzie w ten flirt (rzuciła nat 1 obronne na charyzmę)
+			Stasiu dostaje obrażenia psychiczne
+			tańczą i bawią się zajebiście
+
+			Do bruna podchodzi pewna osoba:
+				{
+					tiefling, pyta czy się napiją razem:
+					B: odmawia
+					T: a może ci w czymś w takim razie pomóc (brzmi to conajmniej jakby oferowała mu szybki numerek w damskim kiblu)
+					tiefling wygląda na przyjazną osobę, nie wydaje się być podejrzana
+					T: przybyłeś tu sam?
+					B: nie, mam dużo towarzystwa - wskazuje na nas
+
+					smerfetka meanwhile znikła nam z oczu
+
+					B: zakładam że nie przyszłaś- edłeś (Bruno wciąż niedowidzi xD https://www.youtube.com/watch?v=-WRv1ssXTXA ) tutaj mnie podrywać tylko mi pomóc.
+					T: właściwie to szukam pracy
+					B: czym się zajmujesz
+					T: mogę robić wszystko
+					B: Roberto w sumie potrzebuje pomocy, mamy nowy dom i trzeba go trochę ogarnąć
+				}
+			Moon się upił 
+			Kania zabiera Moona od Valmira i wymienia go na Antona który idzie napić się z Valmierm.
+			Anton zamawia absynt. 
+			Valmir po absyncie zajebał barnka w podłogę
+
+			Vel zauważa że nie ma swojego rodowego sygnetu
+
+			Po małym zamieszaniu Iso zauważa że typek z papierosem bawi się jej pierścieniem
+
+			Vel do barmana - szklankę najmocniejszego co masz
+			B: jest to pogromca smoków, ma pani pewność?
+			V: whaever, dawaj.
+			*wlewa kubek pełen wody, do tego z fiolki dodaje kropelkę czegoś kiedy cała zawartość kubka czernieje*
+			Vel otrzymuje 2 punkty zmęczenia
+
+			Podchodzi do typka z fajkiem 
+			V: oddaj mi to, (lekko przechyla się na bok), proszę
+			F: połączyłem kilka kropek
+			V: oddaj go
+			F: nie, przyda mi się ten pierścień, jest kluczem do... wielu drzwi
+			*percepcja, nieudana*
+			V: czy jest coś co mogę ci dać w zamian
+			F: musisz się pogodzić z tym że nie zawsze dostajemy to czego chcemy
+
+			typ znów zrizzował Iso (typ nazywa się Darek xD)
+			Iso już dobrze wie, że dziś nie wraca na noc ( https://www.youtube.com/watch?v=iaVurwBf6Wg v2)
+
+			Kiedy Vel wychodzi ma pierścień na sobie i notkę - radzę lepiej pilnować swojej tożsamości pani Velmeio, mnie niebardzo ona obchodzi ale niektórzy w tym mieście dali by za to fortunę. 
+
+			Bruno znajduje wstążkę z domu Dymirów
+
+			Koniec sesji
+		}
+	}
+
+
+	# NASTĘPNA SESJA uwu 31.12.2023
+
+	Iso budzi się z Darkiem a Iso zaczyna z nim filtrować, pyta go o plany na wieczór. 
+	Darka boli głowa, musi się zbierać do pracy, wychodzi.
+	Bjorna nie ma.
+	Valmir ma strasznego kaca.
+	Vel szargają wspomnienia. Przypominają sie jej wczesne dni, kiedy była małą dziewczynką. Dom, piękny stojący na wzgórzu i jej wesoła rodzinka o której wspomnienia są nietypowe. Przypomina jej się strażnik który prawie zawołał do reszty oraz nieznajomy który zabrał Vel pierścień rodowy nie chcąc jej go oddać. Myśli dręczą ją odkąd się obudziła.  
+
+	Kiedy zasiadamy do porannej wieczerzy widzimy schodzącą Vel. Przychodzi nam do głowy tylko ogłoszenie, mówiące o polowaniu na stworzenie w lesie, które powinno dać nam zarobić. Moris ponoć znalazł jakiegoś informatora, ale trzeba będzie zapłacić więc to jest dla nas niezła okazja. Wychodzimy.  
+
+	Kiedy wychodzimy uwagę Moona przyciąga coś bardzo nietypowego. Dzięki swojej zdolności (observant) kiedy wychodzi i rozgląda sie dostrzega w tłumie kątem oka postać. Postać w szacie z czaszką lisa i potężnym porożem. Zwykle znikała kiedy ją dostrzegał ale teraz stoi a za nią stoi inna postać która przeskakując z nogi na nogę zaczyna powoli wychodzić za tamtą postacią. Jej ręka kładzie się na kościanej czaszce i jakby czytał z ust widzi jak miażdzy tę czaszkę, ręka zaciska się i niszczy czaszkę mówiąc:
+	-Berek, ty gonisz.
+	Postać szybko skacze na nią i wbija swoje mechaniczne łapy coraz głębiej w klatkę piersiową tej postaci, wzrok tej mechanicznej postaci w białej masce z dwoma czarnymi łzami spogląda na Moona a kiedy ktoś przysłania ich na chwilę, postać znika. Zauważa ją gdzieś indziej, bliżej a to powtarza się kilkuktrotnie tak jakby postać ze łzami się zbliżała. Moon zaczyna uciekać. My nie widzimy przedczym Moon ucieka. (a my zgubiliśmy go w tłumie, Anton domyśla się że Moon może być na demiplaneie)
+
+	Moon biegnie razem z Moonem i Antonem ale kiedy odwraca się nie widzi ich. Moon nie widzi wtedy ani tej postaci ani żadnych ze swoich kompanów. Kiedy odwraca się spowrotem widzi tę postać stojącą bezpośrednio przed nim. Odskakuje przestraszony i zaczyna się tłumaczyć a postać zbliża się jeszcze bardziej i staje nad nim. Moon spogląda jej w oczy, jedno pomarańczowe a jedno granatowe. Kiedy Moon powoli się cofa postać łapie go za nadgarstek. Moona zaczyna boleć ręka. Postać bierze zamach i kiedy jej ręka ma się wbić Moonowi w podbrzusze zatrzymuje się nagle, mierzy go wzrokiem, puszcza jego nadgarstek i pochyla się po czym podaje mu buteleczkę wskazując jego nadgarstek (mała buteleczka z jasnozieloną substancją), Moon ją bierze, postać kłania się.
+	-Healing potion?
+	-Trochę mocniejsze (zapisać ma sobie jako serum A)
+	Moon chowa fiolkę kiedy postać odchodzi.
+
+	Znajdujemy Moona, który leży na kolanach i wpatruje się w przestrzeń. Kania dotyka go próbując go ocknąć a Moon rzuca na Kanię create bonfire.
+	Iso próbuje go uderzyć ale nie trafia po czym Moon bardzo mocno kontruje. 
+	Anton próbuje rozweselić Moona (sztuczki cyrkowe i magiczne), Moon zaczyna się histerycznie śmiać ale spada mu 1/3 stresu.  
+	
+	Zmierzamy w kierunku południowej bramy.
+	Przy bramie widać strażników z miasta oraz przybyłych: z symbolem latarnii i wierzy strażniczej.
+	Pytamy strażników o ogłoszenie. Odsyłają nas do tych którzy siedzą w budce.
+	Moon uderza z całej siły w kraty.
+	-Umm.. Nikt tu nie śpi.
+	-My po zadanie.
+	-Checie iść na wilkory. Jesteście pewni? *spogląda na nas* Oh widzę że jesteście.
+	Idzie i wyciąga jakiś papier. Czyta.
+	-Jest polowanie na wilkory, dziesięciu, w lesie. *przyznaje się że jest skacowany* Tym samym traktem którym idzie się w stronę twierdzy lorda Veltafy.
+	-Czyli ciała przywlec spowrotem.
+	-Tak najlepiej w całości. Tylko przestroga, większość ludzi boi się tej roboty z uwagi na sabat wiedźm ale to pewnie tylko pogłoski.
+	Idziemy.
+
+	Idziemy ścieżką i o dziwo szara przyroda która zaczyna nas powoli otaczać, idziemy godzinę, drugą i zieleń zaczyna  być coraz bardziej zielona. Kiedy idziemy orientujemy się że zgubiliśmy ścieżkę. Kiedy las się bardziej otwiera widzimy polanę na której jest stoją dwie postaci:
+	Aasimara (Swan) (wygląda jak człowiek) odjebanego jak szczur na otwarcie kanału w brązowym garniaku i kapeluszu z pawim i łabędzim piórem. Wyraz twarzy postaci jest niezadowolony. Ma ze sobą długi miecz. Jego jedno oko jest złote a drugie niebieskie. Włosy są brązowe.
+	Na przeciwko postaci widać białołuską postać (Tyrygosa) ponad dwumetrową, ubraną w ciężki pancerz, ma przy sobie wiele broni (dwa topory, miecz) i stoi z wielką pewnością siebie a w jej oczach widać determinacje a z jej nozdży bucha mroźna para.
+	Postaci stoją na przeciw siebie i żadna nie chce ustąpić drogi drugiej. 
+
+	Iso zaczyna ich wymijać szerokim łukiem. 
+	Moon kładzie się w trawie i bierze kilka bardzo głębokich oddechów. 
+	Postaci wyciągają na raz ten sam pergamin z wizerunkami wiedźm. Czy widzieliście te wiedźmy?
+
+	Swan do Bruna - "Niewielki mężczyzno"
+
+	Z wild magic Anton dostaje wrotki.
+
+	(Kania szuka grzybów nat20) Kiedy spoglądamy dalej w polanę zza ściany lasu widzimy postać borowika. 
+	-Kanio czy mnie wzywałeś.
+	-Nie ale i rak się cieszę że cię widzę. Um, yyy. To jest mój patron, mój bóg.
+	Swan wymownie się patrzy. - Fascynujące...
+	-Wilkorów ktorych szukacie tu nie zobaczycie aczkolwiek jak mnie tu widzicie trafiliście do innego wymiaru. 
+	-Dlaczego znów do zbyt zielonego lasu.
+	-Dobrze że nie do czerwonego, koza by nam zdechła. (Iso)
+
+	Wciąż jesteśmy na polanie. Vel patrzy na stracha na wróble, strach macha do nas.
+	-Czego szukacie.
+	-Wilkorów
+	-Wiedźm
+	-Wiedźm szukacie.
+	Swan - Jak ci mówić kochanie?
+	Strach - Słomka
+	Swan - czy może widziałaś jakieś wilki, jakieś widźmy i jesteś nas w stanie pokierować.
+	-Nie widziałam ale wiedźmę czuję.
+	-Potrafisz nas zaprowadzić
+	-Tam - wskazuje w środek lasu - um więc idźcie, ja za wami pójdę.
+	Idziemy razem ze strachem na wróble, strach na końcu.
+
+	Bruno prowadzi po tym jak Iso zjebała sprawę po całości, trafiamy na coś w rodzaju bagna. Niektórych pogryzły komary.
+	
+	Powoli zapada zmrok. 
+	
+	Pierwsza warta - Bruno i Smerfetka:
+	{
+		("Czy powinno być jasno jak są świerszcze - Iso")
+
+		Bruno ze smerfetką gapią się na gwiazdy, takich nie ma w szczerym polu, wszystko przysłonięte jest dymem
+		Smerfetka opowiada o tym jak wychowała się w lesie. Kiedyś podróżowała wiele po swojej rodzimej krainie ale dowiedziała się że Szczere Pole ma sporą populację tieflingów, szukała kogoś kto mógłby jej pomóc w jej wielkiej misji. Kiedys po powrocie do jej wioski każdy zniknął i jednym z jej celów jest odnalezienie swoich pobratymców. 
+		Bruno opowiada o szczeym polu, o tym jak były tam kiedyś drzewa trawy i weseli ludzie, jak musieli się ukrywać jak musieli kraść jedzenie, potem szantaże i władza po otrzymaniu której tieflingi zniszcyzły wszystko - "bez urazy, ty jesteś inna"
+	}
+
+	Druga warta - Moon i Anton
+	{
+		Jest pełnia. Moon z Antonem narzekają na Szczere Pole. Mimo wszystko chcą odkrywać sekrety szczerego pola. Cieszą się jednak że mogli się na chwilę stamtąd wyrwać.
+		Anton opowiada odrobinę o swojej przeszłości cyrkowej. Nazywa ich złą grupą ludzi. Całe szczęście już ich nie ma.
+		Moon jakby słyszał turkot kół parowozu.
+		Anton mówi że nie zamierza uciekać stąd tak ja stamtąd - spogląda na swoje czerwone dłonie.
+
+	 	Moon pokazuje Antonowi fiolkę którą dostał rano i pyta go o zawartość. 
+		Nie wie co konkretnie robi ta mikstura ale czuje emanujące z niej życie, jeśli istnieje idealna mikstura leczenia to właśnie to nią może być. Ponoć ma to bardzo potężną moc.
+
+		Moon opowiada o tym jak zoatał druidem. Jego mama była zielarką w wiosce. Wszystko przychodziło mu naturalnie z czasem. Zaczął wtedy odczuwać rzeczy których nie czuł wcześniej i rozwjało się to w nim z czasem. 
+
+		We śnie Moonowi ukazuje się postać z porożem, wyciąga do niego rękę ale wygląda jakby coś ją powstrzymywało przed dotknięciem go. Sen sie kończy 
+	}  
+
+	Trzecia warta - Swan i Tyrygosa
+	{
+		Swan do Tyrygosy - 
+		Poza zwalczaniem tego co złe na świecie to czym się zajmujesz
+		Wszystko to przed chwilą opisałeś
+
+		Rozmawiają o bogach, Tyrygosa nie wierzy, w międzyczasie obraża nas nazywając ludzi otaczających ich trupami lub idiotami. Mają mały bonding.
+
+		Bagno wydaje się być spokojne, uwagę Tyrygosy przyciaga postać siedząca gdzieś w oddali przysłuchująca się ich rozmowie, spogląda tam jeszcze raz ale nikogo nie ma.
+		-Tchórze zawsze uciekają
+		-Kogo nazywasz tchórzem? - głos wydaje sie dobiegać znikąd.
+
+		Kontynuują rozmowę o nas w międzyczasie wypatrując czegoś.
+		-Jeśli chceliby nas zaatakować już dawno by to zrobili
+		-Zgadzam się z nią - znów słychać głos
+
+		Ja trochę pojękuje przez sen.
+		Przez sen mówię - ***Przepraszaj, o kurwa przebiłaś mi nogę.*** - DMs inspiration
+
+		-Macie jakieś sekrety do opowiedzenia? - mówi głos
+		-Nie mam żadnych sekretów które mógłbym zdardzić, na ile szanuje swoją towarzyszkę i tych um.. niewielkich ludzi nie chce otwierać się żeby mogli mi wbić nóż w plecy, poza tym że lubię rozlew krwi bo ma piękny kolor to niebardzo cokolwiek jestem w stanie powiedzieć.
+		-A ty smoczyco
+		Opowiada o tym jak zdziesiątkowała jakiś górników
+		-Ale to znana historia o tobie
+		-Ah to oprócz tego niewiele jest do opowiedzenia.
+		-Czyli nic więcej mi nie masz do opowiedzenia?
+		-Czymkolwiek jesteś, nie jesteś mi straszna.
+	
+		Tyrygosa - Fatum
+		Swan - Łaska
+	}
+
+	Czwarta Warta - Iso i Kania
+	{
+		Iso z Kanią rozmawiają o pogodzie, komentują dziesiejszy księżyc. 
+		Iso słyszy świerszcze. Zauważa też jakby strach na wróble był trochę bardziej przezroczysty. 
+		Rozmawiają o tym co się działo wcześniejszego dnia z Moonem. Omawiają jego stresowe epizody. 
+
+		W międzyczasie:
+		Smerfetce śni się koszmar który napełnia ją wielkim niepokojem. Widzi starą babę z długim nosem która chantuje, już ma stracić 7 max hp ale dostaje ode mnie kopa z kopyta (bo kręcę się przez bolącą nogę - DMs inspiration) w potylicę i się wybudza zanim wiedźma zdąży dokończyć swoje zaklęcie. 
+	} 
+
+	Noc się kończy a Słomka wskazuje nam dalszą drogę.
+	Widzimy nieopodal jakąś chatkę. Słomka wskazuje ją - tam, tam jest (pytali wcześniej o wiedźmę).
+	Smerfetka - rzut obronny na Wisdom.
+	Vel - obronny na Wisdom, fatum.
+
+	Kiedy rozmawiamt zauważamy że nie ma Vel.
+	Bruno - Velmeia, a więc tak ma na imię - (21 historia, ma duże o kurwa kiedy orientuje się że jest córką Veltafy)
+	Nie ma też Słomki.
+	
+	W międzyczasie dla Vel świat zmalał a raczej wszystko wokół stało się duże. Vel jest żabą w słoiku, słomka podnosi ją. W środku jest też pewnego rodzaju duży pies. 
+
+	Słyszymy głos dobiegający z chatki
+	Bruno chciał wejść przez okno.
+	Głupcy, daliście się nabrać a teraz tę żabunię wsadzę do pieca hehe. - wskazuje na Vel
+	Tyrygosa wykopuje drzwi.
+}
