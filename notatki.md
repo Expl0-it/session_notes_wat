@@ -1,18 +1,18 @@
-Bard krasnolud=> Bjorn (nie mogłem ci zrobić dobrego 'o' nie bij mnie)
-Jan Kowalski 
+- Bard krasnolud=> Bjorn (nie mogłem ci zrobić dobrego 'o' nie bij mnie)
+- Jan Kowalski 
     => Bodo - Głowa, Gnom Arcane Trickster 
     => Bado - Nogi, Gnom Arcane Trickster 
 
 A no i potem zamiast nich pojawił się jeszcze Bruno (ich ojciec) ale w sumie chuj wie czym on jest (najpewniej też rogalik arcane trickster)
 
-Mag Diabelstwo => Vel
-Monk Aakokra => Cri(iarr)
-Paladyn Kobold => Iso
-krasnolud barbarzyńca - Valmir
-Koto Kleryk => Kania
-Niziołek Spores Druid=> Proknor
-Tiefling Wild Magic Sorcerer => Anton
-Warlock Tiefling - Smerfetka
+- Mag Diabelstwo => Vel
+- Monk Aakokra => Cri(iarr)
+- Paladyn Kobold => Iso
+- krasnolud barbarzyńca - Valmir
+- Koto Kleryk => Kania
+- Niziołek Spores Druid=> Proknor
+- Tiefling Wild Magic Sorcerer => Anton
+- Warlock Tiefling - Smerfetka
 
 # sezon 1
 
@@ -435,6 +435,7 @@ Vel widziała jak spada z krzesła ale siedzi w krześle (stało się coś dziwn
    Moon pyta o truciznę (alkohol XD)
 
    *-"Masz mi mówić ojcze chrzestny" ~Bruno
+   
    -"Dobrze daddy" ~Bard*
 }
 
@@ -524,11 +525,14 @@ co sie działo z nami w międzyczasie
 		wychodzimy na balkon i widzimy futurystyczne miasto, z budowalmi pnącymi się kilka kilometrów w górę
 		z balkonu spogląda też postać apostrofy, ubrana w luźne szaty spogląda w miasto i nagle z drugiego końca pomieszczenia dobiega głos człowieka 3/4 metrowego ubranego w piękny garnitur.
 		Postać ma rude włosy i odzywa się do apostrofy 
-		- I co dalej, i co bracie planujesz osiągnąć, czy ten zamek nie jest szczytem możliwości.
-		- Wiesz bracie mój, jeśli chodzi o wszytko co się stało jest niczym w porównaniu z tym co nadejdzie. Widziałem powstawanie światów i upadek, wojny małe i duże, przewidziałem koniec i jeśli jest coś co mogę zrobić to nie spocznę póki nie pokonam tego co idzie
 		
-	widzimy postać o okularach ciemnych jak noc, spogląda w górę na postać
-		- Za kilka lat będzie nam dane wziąć udział w wielkim przedstawieniu na wielkiej scenie, nie będziemy siłami we wszechświecie, ludzie będą się nas bać, bogowie będą się nas bać, (spogląda w naszą stronę), mam nadejdzie że będziesz mi w tym towarzyszyć moje ostrze.
+-I co dalej, i co bracie planujesz osiągnąć, czy ten zamek nie jest szczytem możliwości.
+		
+-Wiesz bracie mój, jeśli chodzi o wszytko co się stało jest niczym w porównaniu z tym co nadejdzie. Widziałem powstawanie światów i upadek, wojny małe i duże, przewidziałem koniec i jeśli jest coś co mogę zrobić to nie spocznę póki nie pokonam tego co idzie
+		
+widzimy postać o okularach ciemnych jak noc, spogląda w górę na postać
+
+-Za kilka lat będzie nam dane wziąć udział w wielkim przedstawieniu na wielkiej scenie, nie będziemy siłami we wszechświecie, ludzie będą się nas bać, bogowie będą się nas bać, (spogląda w naszą stronę), mam nadejdzie że będziesz mi w tym towarzyszyć moje ostrze.
 
 		
 Sceneria się zmienia, widzimy pole bitwy.
@@ -546,8 +550,8 @@ Sceneria się zmienia, widzimy pole bitwy.
 Po drugiej stronie
 		Postać potężna górująca nad resztą w złotej zbroi w czaski z płonącym ostrzem w ręce
 		
-	Apostrofa wymachuje ostrzem i czarne płomienie pochłaniają szeregi wroga
-		drugie ostrze wzmacnia jego sojuszników
+Apostrofa wymachuje ostrzem i czarne płomienie pochłaniają szeregi wroga
+drugie ostrze wzmacnia jego sojuszników
 
 Planeta zapada się i pojawiają się sfery planetarne
 
@@ -578,7 +582,7 @@ Anton - zakrywa oczy, mówi: Bardzie, za mną ale nie może się ruszyć.
 			Iso - próbuje podejść do ściany odwracając się
 			Smerfetka - z brunem pada na kolana 
 			
-		w międzyczasie rusza się Archeon wymawiając te same słowa co wtedy i staje wyciągając rękę do przodu
+w międzyczasie rusza się Archeon wymawiając te same słowa co wtedy i staje wyciągając rękę do przodu
 
 MOON - nagle spogląda na to co się dzieje, słyszy głos, głos którego moon nigdy wcześniej nie słyszał. Jest to męski, wysoki, irytujący głos który oferuje mu pomoc, nie rozumie jego słów ale rozumie jego przekaz. Moon podświadomie akceptuje ofertę. Potem dostanie zadanie, które będzie mieć do wykonania. Pojawia się chwilowa pauza ale nie mając innej opcji moon akceptuje ofertę.
 			(wchodzi do sali po tym jak gadał ze staśkiem "ja pierdole"). Sens jest taki że ostrze które dzierży apostrofa jest ostrzem korupcji i powoduje niechciane konsekwencje kiedy się na nie patrzysz.
@@ -610,9 +614,9 @@ Anton - bezpiecznie pod peleryną
 			Smerfetka - przerażona, jeszcze nic nigdy nie poszło tak źle, w myślach pyta patrona o guidence, jej wezwanie pozostaje głuche
 			Archeon wstaje z kolan, wyciąga młot i przygotowywuje sie
 			
-		MOON - znów rozumie przekaz i zaczyna rozumieć pojedyncze słowa
-			"Apostrofa jest bogiem tym którzy upadli na dno a jednak wciąż postanawiają walczyć dalej, jeśli chcesz przetrwać to, uzbrój swe serce"
-			W całym tym chaosie po wizjach jest dość mocno zdruzgotany ale udaje mu się uspokoić myśli, zaczyna medytować 
+MOON - znów rozumie przekaz i zaczyna rozumieć pojedyncze słowa
+"Apostrofa jest bogiem tym którzy upadli na dno a jednak wciąż postanawiają walczyć dalej, jeśli chcesz przetrwać to, uzbrój swe serce"
+W całym tym chaosie po wizjach jest dość mocno zdruzgotany ale udaje mu się uspokoić myśli, zaczyna medytować 
 
 wszyscy którzy mieli zapamiętać mają na karcie sobie zapisać "FATUM"
 		}
@@ -639,7 +643,7 @@ Bard - 2 punkty zmęczenia, wszystkie spell sloty są z niego wyrwane
 
 kiedy widzimy potężną kreaturę stojącą nad nami, wokół archeona pojawiają się 4 promienie, w stronę Archeona lecą dwa łańcuchy a on krzyczy z bólu kiedy dostrzegamy postać apostrofy górującą nad Archeonem a obok niego jest świecąca się na czerwono żaba.
 			
-		Kiedy archeon pada na ziemie Moona ledwo mijają łańcuchy a moona coś łapie za kołnierz, z pędem wiatru pojawia się i jednym szybkim ruchem ręki odrzuca go do nas i rzuca na niego slow fall, postać wyciąga ostrze a łańcuchy pękają. Postać ma dziwne pajęcze wzory na sobie. Znika ciemność, znika sceneria wokół nas a za archeonem pojawiają się 4 ręce wciągając go gdzieś ze sobą.
+Kiedy archeon pada na ziemie Moona ledwo mijają łańcuchy a moona coś łapie za kołnierz, z pędem wiatru pojawia się i jednym szybkim ruchem ręki odrzuca go do nas i rzuca na niego slow fall, postać wyciąga ostrze a łańcuchy pękają. Postać ma dziwne pajęcze wzory na sobie. Znika ciemność, znika sceneria wokół nas a za archeonem pojawiają się 4 ręce wciągając go gdzieś ze sobą.
 
 Widzimy Antona leżącego w plamie jasnofioletowej posoki, kiedy się przyjżeć wiemy że jest martwy, 
 			ANTON BUDZI SIĘ I DRZE RYJA, jego ręce są jeszcze bardziej czerwone niż zwykle
