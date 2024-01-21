@@ -492,29 +492,29 @@ Idziemy przez rynek{
    Moon woła odchodzącą zbroję krzycząc "Apostrofa"
         Zbroja obraca się przerażona słysząc imię
             
-	    -Skąd jesteście
+-Skąd jesteście
             
-	    -Z drugiego kontynentu
+-Z drugiego kontynentu
             
-	    -To nie ma sensu... Co tu robicie
+-To nie ma sensu... Co tu robicie
             
-	    -Jesteśmy łowcami demonów, to nasze odwieczne zadanie
+-Jesteśmy łowcami demonów, to nasze odwieczne zadanie
             
-	    -Kłamstwo!
+-Kłamstwo!
             
-	    -Ta? A niby co robimy
+-Ta? A niby co robimy
             
-	    -Nie pamiętam ale wiem że nie do końca mówisz prawdę, zabijacie też niewinne osoby.
+-Nie pamiętam ale wiem że nie do końca mówisz prawdę, zabijacie też niewinne osoby.
             
-	    -A wiesz kim one były, trzymały z demonami bo myślały że coś od nich dostaną a jedyne co dostały to śmierć, zagłada i cierpienie.
+-A wiesz kim one były, trzymały z demonami bo myślały że coś od nich dostaną a jedyne co dostały to śmierć, zagłada i cierpienie.
             
-	    -Wy też nie jesteście niewinni, Apostrofa, jest gdzieś w tym mieście
+-Wy też nie jesteście niewinni, Apostrofa, jest gdzieś w tym mieście
             
-	    Zbroja łapie Moona podnosząc go - Idziemy
+Zbroja łapie Moona podnosząc go - Idziemy
 
 
 
-   W pancerzu nikogo nie ma co widać po tym jak Anton robi dziurę w pancerzu, Archeon próbuje włożyć Moona w zbroję. 
+W pancerzu nikogo nie ma co widać po tym jak Anton robi dziurę w pancerzu, Archeon próbuje włożyć Moona w zbroję. 
            Nagle znów zamiera czas i zbroja jest z (najpewniej) Apostrofą, Apostrofa ma czerwoną żabę na ramieniu, żaba zmienia się w miecz o czerwonym ostrzu
            "Jak ode mnie zmarł złoty imperator na tronie tak wielu jeszcze zgładzę"
             Archeon przeciwstawia się drugiej postaci "Każdym z 4 płomieni" 
@@ -678,21 +678,21 @@ Pizzeria
 		{
 			idziemy na zaplecze.
 			
-			- Moris co się stało
+-Moris co się stało
 			
-			- Posłuchaj mnie, z decyzji lordów Kyssi przybiywa Generał Artavia Loventort, córka Lorda Zachodu przybywa osobiście rozprawić się z rzeczami dziejącymi się w mieście. Musimy być ostrożni, zamiast straży miejskiej będą tu rycerze. 
+-Posłuchaj mnie, z decyzji lordów Kyssi przybiywa Generał Artavia Loventort, córka Lorda Zachodu przybywa osobiście rozprawić się z rzeczami dziejącymi się w mieście. Musimy być ostrożni, zamiast straży miejskiej będą tu rycerze. 
 			
-			- Masz jakieś informacje?
+-Masz jakieś informacje?
 			
-			- dowiedziałem się kilku rzeczy, poza artavią i syndykatem chodzą plotki o rytułałach satanistycznych które się dzieją po nocach
+-dowiedziałem się kilku rzeczy, poza artavią i syndykatem chodzą plotki o rytułałach satanistycznych które się dzieją po nocach
 			
-			- Musimy zdecydować czym zając się najpierw
+-Musimy zdecydować czym zając się najpierw
 			
-			- trzeba znaleźć bazę, znalazłem dom, willę nawet ale nie wiem co może być w środku. Nikt tam od dawna nie zawitał. (Moris sam nie dał rady się włamać)
+-trzeba znaleźć bazę, znalazłem dom, willę nawet ale nie wiem co może być w środku. Nikt tam od dawna nie zawitał. (Moris sam nie dał rady się włamać)
 			
-			- Możemy to wykorzystać, syndykat zostanie osłabiony
+-Możemy to wykorzystać, syndykat zostanie osłabiony
 			
-			- Jest generałem, musi być szurnięta, spróbujmy coś wymyślić jutro.
+-Jest generałem, musi być szurnięta, spróbujmy coś wymyślić jutro.
 
 Jemy pizze, pijemy wodę, kiedy jemy słyszymy jak ulicami przechodzi iryujący głos szambelana
 			"Uwaga uwaga ble ble ble... oczyścić z rzeczy które się kryją ble ble, na życzenie lorda zachodu - Aleksandros, Lord wschodu - Veltafa"
@@ -743,15 +743,15 @@ Wszyscy wracają do chatki
 
 Anton zaczyna rozmawiać z moonem
 		
-		A - Chciałem do ciebie biec ale umarłem, opowiada o płomieniach które wyssały z niego moc magiczną
+A - Chciałem do ciebie biec ale umarłem, opowiada o płomieniach które wyssały z niego moc magiczną
 		
-		M - w trakcie całego tego wydarzenia coś się ze mną skontaktowało (dostaje migrenę). Pyta Antona czy wierzy w jakiegoś boga. 
+M - w trakcie całego tego wydarzenia coś się ze mną skontaktowało (dostaje migrenę). Pyta Antona czy wierzy w jakiegoś boga. 
 		
-		A - zaintereswał mnie bóg Kanii
+A - zaintereswał mnie bóg Kanii
 		
-		M - będę się musiał tym zainteresować
+M - będę się musiał tym zainteresować
 		
-		Valmir dołącza ale nie ma nic ciekawego do powiedzenia
+Valmir dołącza ale nie ma nic ciekawego do powiedzenia
 
 
 Stasiu (o bardzie) "I oczywiście ten tłuk kartoflany musiał wyjść akurat teraz. Mi się rozładowywuje kurwa laptop."
@@ -877,11 +877,11 @@ Inkantaje brzmią jakby docierały spod nas ale nigdzie nie można dostrzec wej�
 Bruno zwiedza, trafia do jadalni w której jest postać
 		{
 			
-			"czekałem tu na was"
+"czekałem tu na was"
 			
-			-kim jesteś
+-kim jesteś
 			
-			-dlaczego miałbym mówić naszemu posiłkowi - ściąga kaptur, w płaszczu są trzy koboldy jeden na drugim a z innych miejsc wyskakuje na nas jeszcze kilka koboldów
+-dlaczego miałbym mówić naszemu posiłkowi - ściąga kaptur, w płaszczu są trzy koboldy jeden na drugim a z innych miejsc wyskakuje na nas jeszcze kilka koboldów
 
 na schodach pułapka, (pressure plate)
 
@@ -1310,7 +1310,6 @@ T: mogę robić wszystko
 					
 B: Roberto w sumie potrzebuje pomocy, mamy nowy dom i trzeba go trochę ogarnąć
 				
-				}
 Moon się upił 
 Kania zabiera Moona od Valmira i wymienia go na Antona który idzie napić się z Valmierm.
 Anton zamawia absynt. 
