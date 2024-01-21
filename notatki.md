@@ -428,7 +428,7 @@ Karczma{
    Iso dostaje kartę dań (jasnoniebieski magehand ją podaje)
        w karcie przede wszystkim mięso (karkówki z demonicznych bestii, rośliny z dalekich demonicznych krain)
         
-    Vel widziała jak spada z krzesła ale siedzi w krześle (stało się coś dziwnego chyba)
+Vel widziała jak spada z krzesła ale siedzi w krześle (stało się coś dziwnego chyba)
 
    Jemy:> 
 
@@ -527,7 +527,7 @@ co sie działo z nami w międzyczasie
 		- I co dalej, i co bracie planujesz osiągnąć, czy ten zamek nie jest szczytem możliwości.
 		- Wiesz bracie mój, jeśli chodzi o wszytko co się stało jest niczym w porównaniu z tym co nadejdzie. Widziałem powstawanie światów i upadek, wojny małe i duże, przewidziałem koniec i jeśli jest coś co mogę zrobić to nie spocznę póki nie pokonam tego co idzie
 		
-		widzimy postać o okularach ciemnych jak noc, spogląda w górę na postać
+	widzimy postać o okularach ciemnych jak noc, spogląda w górę na postać
 		- Za kilka lat będzie nam dane wziąć udział w wielkim przedstawieniu na wielkiej scenie, nie będziemy siłami we wszechświecie, ludzie będą się nas bać, bogowie będą się nas bać, (spogląda w naszą stronę), mam nadejdzie że będziesz mi w tym towarzyszyć moje ostrze.
 
 		
@@ -546,7 +546,7 @@ Sceneria się zmienia, widzimy pole bitwy.
 Po drugiej stronie
 		Postać potężna górująca nad resztą w złotej zbroi w czaski z płonącym ostrzem w ręce
 		
-		Apostrofa wymachuje ostrzem i czarne płomienie pochłaniają szeregi wroga
+	Apostrofa wymachuje ostrzem i czarne płomienie pochłaniają szeregi wroga
 		drugie ostrze wzmacnia jego sojuszników
 
 Planeta zapada się i pojawiają się sfery planetarne
@@ -578,7 +578,7 @@ Anton - zakrywa oczy, mówi: Bardzie, za mną ale nie może się ruszyć.
 			Iso - próbuje podejść do ściany odwracając się
 			Smerfetka - z brunem pada na kolana 
 			
-			w międzyczasie rusza się Archeon wymawiając te same słowa co wtedy i staje wyciągając rękę do przodu
+		w międzyczasie rusza się Archeon wymawiając te same słowa co wtedy i staje wyciągając rękę do przodu
 
 MOON - nagle spogląda na to co się dzieje, słyszy głos, głos którego moon nigdy wcześniej nie słyszał. Jest to męski, wysoki, irytujący głos który oferuje mu pomoc, nie rozumie jego słów ale rozumie jego przekaz. Moon podświadomie akceptuje ofertę. Potem dostanie zadanie, które będzie mieć do wykonania. Pojawia się chwilowa pauza ale nie mając innej opcji moon akceptuje ofertę.
 			(wchodzi do sali po tym jak gadał ze staśkiem "ja pierdole"). Sens jest taki że ostrze które dzierży apostrofa jest ostrzem korupcji i powoduje niechciane konsekwencje kiedy się na nie patrzysz.
@@ -610,7 +610,7 @@ Anton - bezpiecznie pod peleryną
 			Smerfetka - przerażona, jeszcze nic nigdy nie poszło tak źle, w myślach pyta patrona o guidence, jej wezwanie pozostaje głuche
 			Archeon wstaje z kolan, wyciąga młot i przygotowywuje sie
 			
-			MOON - znów rozumie przekaz i zaczyna rozumieć pojedyncze słowa
+		MOON - znów rozumie przekaz i zaczyna rozumieć pojedyncze słowa
 			"Apostrofa jest bogiem tym którzy upadli na dno a jednak wciąż postanawiają walczyć dalej, jeśli chcesz przetrwać to, uzbrój swe serce"
 			W całym tym chaosie po wizjach jest dość mocno zdruzgotany ale udaje mu się uspokoić myśli, zaczyna medytować 
 
@@ -639,7 +639,7 @@ Bard - 2 punkty zmęczenia, wszystkie spell sloty są z niego wyrwane
 
 kiedy widzimy potężną kreaturę stojącą nad nami, wokół archeona pojawiają się 4 promienie, w stronę Archeona lecą dwa łańcuchy a on krzyczy z bólu kiedy dostrzegamy postać apostrofy górującą nad Archeonem a obok niego jest świecąca się na czerwono żaba.
 			
-			Kiedy archeon pada na ziemie Moona ledwo mijają łańcuchy a moona coś łapie za kołnierz, z pędem wiatru pojawia się i jednym szybkim ruchem ręki odrzuca go do nas i rzuca na niego slow fall, postać wyciąga ostrze a łańcuchy pękają. Postać ma dziwne pajęcze wzory na sobie. Znika ciemność, znika sceneria wokół nas a za archeonem pojawiają się 4 ręce wciągając go gdzieś ze sobą.
+		Kiedy archeon pada na ziemie Moona ledwo mijają łańcuchy a moona coś łapie za kołnierz, z pędem wiatru pojawia się i jednym szybkim ruchem ręki odrzuca go do nas i rzuca na niego slow fall, postać wyciąga ostrze a łańcuchy pękają. Postać ma dziwne pajęcze wzory na sobie. Znika ciemność, znika sceneria wokół nas a za archeonem pojawiają się 4 ręce wciągając go gdzieś ze sobą.
 
 Widzimy Antona leżącego w plamie jasnofioletowej posoki, kiedy się przyjżeć wiemy że jest martwy, 
 			ANTON BUDZI SIĘ I DRZE RYJA, jego ręce są jeszcze bardziej czerwone niż zwykle
@@ -689,7 +689,7 @@ Wracamy do chatki w której wcześniej spaliśmy
 
 pełnia która była w scenie z apostrofą znikła, wrócił dzień na co zwrócił uwagę moon
 			
-			Moon pyta mnie o boga, czy mam swojego - Nie powiem że nie wierzę w bogów ale nie zrobili w moim życiu dla mnie zbyt wiele dobrego. 
+Moon pyta mnie o boga, czy mam swojego - Nie powiem że nie wierzę w bogów ale nie zrobili w moim życiu dla mnie zbyt wiele dobrego. 
 		}
 
 Idą do publicznej łaźni
@@ -759,9 +759,9 @@ Idziemy sprawdzić miejsce o którym wspominał wcześniej Moris. Jest to w tej 
 
 Moon wszedł w kałużę krwi. Vel zasłania się peleryną z kapturem. Udajemy się na rynek, z nadzieją usłyszenia jakiegoś przemówienia pani generał. Rynek jest pełen "ludzi". Generał stoi przed murem ratusza gdzie z ciał strażników ułożony jest napis. "WYNOCHA".
 	
-	symbol gwardii Kyssi z zachodu (z Kieltawy): pięciokąt, niebieskie tło, latarnia 
+symbol gwardii Kyssi z zachodu (z Kieltawy): pięciokąt, niebieskie tło, latarnia 
 	
-	symbol jest bardzo podobny do innego symbolu, który Vel widziała przez całe dzieciństwo, wieża na innym tle, niewielkie różnice (symbolu gwardii wschodu)
+symbol jest bardzo podobny do innego symbolu, który Vel widziała przez całe dzieciństwo, wieża na innym tle, niewielkie różnice (symbolu gwardii wschodu)
 
 dostrzegamy postai
 	{
@@ -865,7 +865,7 @@ Bjorn wchodzi do kaplicy, w środku 3 witraże - jeden biały, drugi czarny a po
 			Bjorn podchodząc czuje przymus uklęknięcia (niczym po użyciu command)
 			jego oczy przykówa widok drzwi, a za nimi schodów prowadzących w dół
 			
-			schodzimy na dół, pomieszczenie jest kwadratowe a na środku jest krąg (jakby rytualny), nie przypomina mi on niczego
+schodzimy na dół, pomieszczenie jest kwadratowe a na środku jest krąg (jakby rytualny), nie przypomina mi on niczego
 
 idziemy w stronę drzwi, które dalej schodami prowadzą do trapdoora i na zewnątrz na tyły ogrodu
 			kania zamyka trapdoor, gasi świeczki (słyszy szepty), po czym zamyka drzwi
@@ -895,11 +895,11 @@ Zasiadamy do posiłku, po środku siedzi bruno a po samym końcu stołu jest sme
 
 Ja w pokoju z Iso i Vel.
 			
-			Idziemy spać. Wszyscy mamy dość podobny sen.
-			Jesteśmy na pustyni. Leżymy tam wszyscy, większość nie może się ruszać, ja tylko stoję obok a na przeciwko mnie nagle z piasku zaczyna wyłaniać się potężna postać, kiedy się wyłania widzimy wielką sylwetkę węża a z jego pleców wielkie szkieletowate skrzydła. Patrzy się na nas a szczególnie w moją stronę.
-			- Oh, więc wreszcie chcesz ze mną porozmawiać.
-			- Trochę się wydarzyło ostatnim razem, myślę że jestem wam winny pewne wyjaśnienia, ale nie będą darmowe, będzie to mieć swoją cenę Ulrichu. 
-			(Dostajemy poziom ASI i feat)
+Idziemy spać. Wszyscy mamy dość podobny sen.
+Jesteśmy na pustyni. Leżymy tam wszyscy, większość nie może się ruszać, ja tylko stoję obok a na przeciwko mnie nagle z piasku zaczyna wyłaniać się potężna postać, kiedy się wyłania widzimy wielką sylwetkę węża a z jego pleców wielkie szkieletowate skrzydła. Patrzy się na nas a szczególnie w moją stronę.
+-Oh, więc wreszcie chcesz ze mną porozmawiać.
+-Trochę się wydarzyło ostatnim razem, myślę że jestem wam winny pewne wyjaśnienia, ale nie będą darmowe, będzie to mieć swoją cenę Ulrichu. 
+(Dostajemy poziom ASI i feat)
 		}
 	}
 }
@@ -1092,9 +1092,9 @@ Bard podchodzi do bramy ratusza, próbując poderwać strażnika.
 MEANWHILE MOON PRÓBUJE SIE WPIERDOLIĆ NA RATUSZ (17 na skradanie XD (i to niby Antona pojebało))
 		Kania widzi jak Moon tam wszedł xDDDD (skisne szybciej niż borowiki w plecaku kanii)
 		
-		Moon rozgląda się po ratuszu (po prostu kurwa xD, https://www.youtube.com/watch?v=18Kr_v3y6Zo , nie mam nic więcej do dodania)
-		{
-			Kiedy wchodzi do środka witają go pięknie zdobione pomieszczenia o drewnianych wykończeniach. W pewnym momencie widzi jak w jednym z bocznych pokoi ktoś parzy herbatę, widzi jak wyciąga małą buetleczkę i dolewa kropelkę do herbaty po czym chowa ją spowrotem. Potem bierze tacę i idzie korytarzami na górę i mówi:
+Moon rozgląda się po ratuszu (po prostu kurwa xD, https://www.youtube.com/watch?v=18Kr_v3y6Zo , nie mam nic więcej do dodania)
+
+Kiedy wchodzi do środka witają go pięknie zdobione pomieszczenia o drewnianych wykończeniach. W pewnym momencie widzi jak w jednym z bocznych pokoi ktoś parzy herbatę, widzi jak wyciąga małą buetleczkę i dolewa kropelkę do herbaty po czym chowa ją spowrotem. Potem bierze tacę i idzie korytarzami na górę i mówi:
 
 -Pani Artawio, herbata gotowa.
 
@@ -1106,12 +1106,12 @@ Moon widzi jak postać powoli zanika w korytarzu na górze, Moon idzie za nim. (
 			MOON CHCE WCHODZIĆ XD
 			Kątem oka Moon widzi postać, którą ostatnio Moon widuje często, postać kiwa głową przcząco 
 			
-			G: Jestem tak zmęczona po tej nocy
-			S: Dowodzenie jednostką specjalną może być męczące nawet dla takiej istoty jak pani.
-			G: Nareszcie przekonaliśmy też tego zgrzybiałego Veltafę do współpracy. Rozstawiliśmy maszyny żeby pozbyć się zakonu wiedźm które tu są, maszyny kroczące na dwóch nogach stare ale potężniejsze niż większość ludzi na tym świecie mogące wystrzelać tysiące kul na sekundę. Niechaj wreszcie wybiorą tego nowego króla Kyssi i niech ten chaos się wreszcie skończy. Książę William będzie dobrym władcą. *Pije herbatkę, zakaszlała* - Możesz już iść, mam dużo papierkowej roboty.
-			Moon ucieka i wychodzi z ratusza, do strażników mówi 
-			- Czołem!
-			STRAŻNICY DEBILE SIĘ NIE ZORIENTOWALI ( https://i.imgflip.com/614o43.png ) (pewnie wciąż myśleli chujami po interakcji z bardem)
+G: Jestem tak zmęczona po tej nocy
+S: Dowodzenie jednostką specjalną może być męczące nawet dla takiej istoty jak pani.
+G: Nareszcie przekonaliśmy też tego zgrzybiałego Veltafę do współpracy. Rozstawiliśmy maszyny żeby pozbyć się zakonu wiedźm które tu są, maszyny kroczące na dwóch nogach stare ale potężniejsze niż większość ludzi na tym świecie mogące wystrzelać tysiące kul na sekundę. Niechaj wreszcie wybiorą tego nowego króla Kyssi i niech ten chaos się wreszcie skończy. Książę William będzie dobrym władcą. *Pije herbatkę, zakaszlała* - Możesz już iść, mam dużo papierkowej roboty.
+Moon ucieka i wychodzi z ratusza, do strażników mówi 
+-Czołem!
+STRAŻNICY DEBILE SIĘ NIE ZORIENTOWALI ( https://i.imgflip.com/614o43.png ) (pewnie wciąż myśleli chujami po interakcji z bardem)
 
 Moon widzi z okna jak ktoś stoi i się na nas patrzy, Pani Generał stoi i zasłania zasłonę.
 
@@ -1263,18 +1263,18 @@ Znajdujemy Moona, który leży na kolanach i wpatruje się w przestrzeń. Kania 
 	Iso próbuje go uderzyć ale nie trafia po czym Moon bardzo mocno kontruje. 
 	Anton próbuje rozweselić Moona (sztuczki cyrkowe i magiczne), Moon zaczyna się histerycznie śmiać ale spada mu 1/3 stresu.  
 	
-	Zmierzamy w kierunku południowej bramy.
-	Przy bramie widać strażników z miasta oraz przybyłych: z symbolem latarnii i wierzy strażniczej.
-	Pytamy strażników o ogłoszenie. Odsyłają nas do tych którzy siedzą w budce.
-	Moon uderza z całej siły w kraty.
-	-Umm.. Nikt tu nie śpi.
-	-My po zadanie.
-	-Checie iść na wilkory. Jesteście pewni? *spogląda na nas* Oh widzę że jesteście.
-	Idzie i wyciąga jakiś papier. Czyta.
-	-Jest polowanie na wilkory, dziesięciu, w lesie. *przyznaje się że jest skacowany* Tym samym traktem którym idzie się w stronę twierdzy lorda Veltafy.
-	-Czyli ciała przywlec spowrotem.
-	-Tak najlepiej w całości. Tylko przestroga, większość ludzi boi się tej roboty z uwagi na sabat wiedźm ale to pewnie tylko pogłoski.
-	Idziemy.
+Zmierzamy w kierunku południowej bramy.
+Przy bramie widać strażników z miasta oraz przybyłych: z symbolem latarnii i wierzy strażniczej.
+Pytamy strażników o ogłoszenie. Odsyłają nas do tych którzy siedzą w budce.
+Moon uderza z całej siły w kraty.
+-Umm.. Nikt tu nie śpi.
+-My po zadanie.
+-Checie iść na wilkory. Jesteście pewni? *spogląda na nas* Oh widzę że jesteście.
+Idzie i wyciąga jakiś papier. Czyta.
+-Jest polowanie na wilkory, dziesięciu, w lesie. *przyznaje się że jest skacowany* Tym samym traktem którym idzie się w stronę twierdzy lorda Veltafy.
+-Czyli ciała przywlec spowrotem.
+-Tak najlepiej w całości. Tylko przestroga, większość ludzi boi się tej roboty z uwagi na sabat wiedźm ale to pewnie tylko pogłoski.
+Idziemy.
 
 Idziemy ścieżką i o dziwo szara przyroda która zaczyna nas powoli otaczać, idziemy godzinę, drugą i zieleń zaczyna  być coraz bardziej zielona. Kiedy idziemy orientujemy się że zgubiliśmy ścieżkę. Kiedy las się bardziej otwiera widzimy polanę na której jest stoją dwie postaci:
 	Aasimara (Swan) (wygląda jak człowiek) odjebanego jak szczur na otwarcie kanału w brązowym garniaku i kapeluszu z pawim i łabędzim piórem. Wyraz twarzy postaci jest niezadowolony. Ma ze sobą długi miecz. Jego jedno oko jest złote a drugie niebieskie. Włosy są brązowe.
@@ -1314,9 +1314,9 @@ Bruno prowadzi po tym jak Iso zjebała sprawę po całości, trafiamy na coś w 
 	
 Powoli zapada zmrok. 
 	
-	Pierwsza warta - Bruno i Smerfetka:
-	{
-		("Czy powinno być jasno jak są świerszcze - Iso")
+Pierwsza warta - Bruno i Smerfetka:
+{
+("Czy powinno być jasno jak są świerszcze - Iso")
 
 Bruno ze smerfetką gapią się na gwiazdy, takich nie ma w szczerym polu, wszystko przysłonięte jest dymem
 		Smerfetka opowiada o tym jak wychowała się w lesie. Kiedyś podróżowała wiele po swojej rodzimej krainie ale dowiedziała się że Szczere Pole ma sporą populację tieflingów, szukała kogoś kto mógłby jej pomóc w jej wielkiej misji. Kiedys po powrocie do jej wioski każdy zniknął i jednym z jej celów jest odnalezienie swoich pobratymców. 
@@ -1330,7 +1330,7 @@ Druga warta - Moon i Anton
 		Moon jakby słyszał turkot kół parowozu.
 		Anton mówi że nie zamierza uciekać stąd tak ja stamtąd - spogląda na swoje czerwone dłonie.
 
- 	Moon pokazuje Antonowi fiolkę którą dostał rano i pyta go o zawartość. 
+ Moon pokazuje Antonowi fiolkę którą dostał rano i pyta go o zawartość. 
 		Nie wie co konkretnie robi ta mikstura ale czuje emanujące z niej życie, jeśli istnieje idealna mikstura leczenia to właśnie to nią może być. Ponoć ma to bardzo potężną moc.
 
 Moon opowiada o tym jak zoatał druidem. Jego mama była zielarką w wiosce. Wszystko przychodziło mu naturalnie z czasem. Zaczął wtedy odczuwać rzeczy których nie czuł wcześniej i rozwjało się to w nim z czasem. 
@@ -1366,9 +1366,9 @@ Ja trochę pojękuje przez sen.
 		-Czyli nic więcej mi nie masz do opowiedzenia?
 		-Czymkolwiek jesteś, nie jesteś mi straszna.
 	
-		Tyrygosa - Fatum
-		Swan - Łaska
-	}
+Tyrygosa - Fatum
+Swan - Łaska
+}
 
 Czwarta Warta - Iso i Kania
 	{
@@ -1389,7 +1389,7 @@ Kiedy rozmawiamt zauważamy że nie ma Vel.
 	Bruno - Velmeia, a więc tak ma na imię - (21 historia, ma duże o kurwa kiedy orientuje się że jest córką Veltafy)
 	Nie ma też Słomki.
 	
-	W międzyczasie dla Vel świat zmalał a raczej wszystko wokół stało się duże. Vel jest żabą w słoiku, słomka podnosi ją. W środku jest też pewnego rodzaju duży pies. 
+W międzyczasie dla Vel świat zmalał a raczej wszystko wokół stało się duże. Vel jest żabą w słoiku, słomka podnosi ją. W środku jest też pewnego rodzaju duży pies. 
 
 Słyszymy głos dobiegający z chatki
 	Bruno chciał wejść przez okno.
