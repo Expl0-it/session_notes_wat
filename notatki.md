@@ -1543,3 +1543,214 @@ Słyszymy głos dobiegający z chatki
 	Głupcy, daliście się nabrać a teraz tę żabunię wsadzę do pieca hehe. - wskazuje na Vel
 	Tyrygosa wykopuje drzwi.
 }
+
+#### Perspektywa Vel
+Walmir budzi się po kazcu nie wie gdzie jest reszta... Mencing odgłosy kół na korytażu, (to tylko sprzątaczka XD), dowiaduje się gdzie poszli, idzie do bramy
+TYMCZASEM... bard budzi się ~~z̶ h̶u̶j̶e̶m̶ w̶ d̶u̶p̶ie~~ ze sztyletem wbitym w bok (nie to miał na myśli gdy mówił ostry seks ale i tak mu stanął)... bard szybko uspał swojego oponeta ex lovera
+po czym wyszedł na ulice, idzie w prawo XD idzie szybkim chodem krwawiąc przy tym wielce XD (mgła gęsta jak mleko), wpada na Walmira 
+
+>konwersacja.mp4 (nadrabiają zaległości)
+>czemu idziesz do połódniowej bramy 
+
+>sprzątaczka 
+
+>fair enough...  
+
+Walmir 60 wsypuje barda gdy strażnicy pytają się czemu ten jest we krwi, jakoś z tego wybrneli (wymówka: ostry seks x2)
+idą w naszą stronę przez las... Tymczasem my wychodzimy z chatki on za nami znika, nie ma Urlicha i Tyrygosy ale decydujemy się kontynuować polowanie na Wilkory (Moon usłyszał je w oddali)
+tropiąc je dajamy się zaskoczyć... rozpoczyna się walka... (księżyc staje się geostacjonarny)... Przchodzi alfa i wycofuje wilki (zabiliśmy tylko jedną sztuę ;_;).
+W obawie przed tym że watacha może być większa wracamy do miasta... spotykamy tieflinga z piórem (gonimy go)... wbiega do fabryki NOPE.jpg. Smerfetka wysyła klakiera do środka 
+ale z powodu fatum switchuje z nim miejsce. Smerfetka zmienia plaina i gdy mgła opada wydzi wysokie budowle po horyznot, ludzi w innych strojach i piękne ogromne maszyny z żółtymi wykończeniami oraz symbolami fabryk, podniebne statki latają po niebie a mgła zaczyna znowu robić się gęsta. W mgle widać 2 jasne ślepia, zabrzmiewa pytanie : czego chcesz w przyszłości
+smerfetka: rodziny. (Ten plain to Wielka kuźnia Kinzie a jej twórca którego widzimy oczy nazywa się Dewos)... Wracamy do bazy wypadowej, wkórwionasprzątaczka.mov, Wszyscy idą czyścić ubrania/ myć się. Bruno przeskakuje nad Byornem i Walmirem argumentującymi o to kto pierwszy skożysta z toalety... mija trochę czasu... Bruno idzie odczytać zwój (z tieflinga z fabryki)...
+FireballwGabincecieAUUUUUUUUU, Moon biegnie Rezować Bruno zaczynamy gasić ogień... Bard ma wyjebane i rozkazał wyprać jego ubrania (prestidigitation). Vel się zgadza ale w momencie w którym bard się odwraca dostaje taką lepę że składa się w pół i mdleje na 6 sekund, budzi się a nad nim stoi nagi Walmir (z dyndającym interesem cm nad jego głową)... i Anton... też nagi... Moon ich widzi... powoli wraca do gaszenia pożaru. Ktoś puka do drzwi (STRAŻ OTWIERAĆ!)... wyścigi do drzwi... na czole gołyAnton(TM)... Kania próbuje tacklować ale wywala się na tważ Swan za to daje radę, przytrzymać, barbariana. niestety kolejny w wyścigu był goły anton i rezistując hold person Vel otwiera drzwi... a tam darek z obstawą (miał glowup i gwiazdkę na ramieniu) proszęsięokryć, 
+Moon: Udało się ugasić pożar panie Bruno. 
+Darek: U W0T M8. 
+Iso: HAIIIIIIIII (*blushes* UwU) 
+Darek: cześć (lennyface) *puszcza oczko* dobra nie hałasować i wraca. Koniec Sesji
+
+
+#### Perspektywa Moona
+Valmir zaspał i szuka reszty drużyny, nikt nie zostawił dla niego wiadomości gdzie idziemy tho
+kiedy się rozgląda po pomieszczeniu widzi leżące ogłoszenie o polowaniu na wilkory
+Nagle słyszy hałas na zewnątrz pokoju, tak jakby cos poruszało się po holu na kółkach
+Valmir bierze młot do rąk i próbuje wyjrzeć zza drzwi jednak skradanie się jako barbarzyńca z jebitnym młotem okazuje się dosyć ciężkie więc stwierdza że przytrzyma sobą drzwi
+
+Po krótkiej chwili ktoś próbuje otworzyć drzwi popychając je „ No.. rusz.się..ty”
+
+Valmir: Kto tam?!
+
+Ewidentnie kobieta za drzwiami wydała z siebie okrzyk przerażenia ze zdziwieniem
+Valmir ponawia pytanie, a kobieta z przerażeniem odpowiada że ona tu tylko sprząta, a barbarzyńcy coś tam się odbija po tym móżdżku że faktycznie chyba mieliśmy sprzątaczke
+Przepraszając dopytywał gdzie dokładnie są jego znajomi z drużyny i odpowiedź uzyskał - poszli do południowej bramy chyba polować na wilkory i tak oto bohater tej sceny zarzuca młot na ramię i wychodzi, zastanawiając się, gdzie właściwie jest południe
+
+Tymczasem Bjorn po upojnej nocy z pewnym strażnikiem, budzi się nagle i ku swojemu zaskoczeniu nie zastała go przyjemna niespodzianka, a nóż w lewym boku
+Za to jego nocny partner, wygląda jakby był opętany
+
+„Będziesz dobrą ofiarą”
+
+Na pewno nie takiej pobudki spodziewał się krasnolud jednak jego partnerowi nie wydaje się to przeszkadzać i zaczyna w niego rzucać nożami, trafiając ponownie i uśmiechając się złowieszczo
+
+((Nowicek - „To się nazywa ostry seks”))
+
+Bardowi ciągle sie dostaje, jednak w końcu wybudzony z pierwszego szoku, usypia jednonocnego (we'll see xD) towarzysza. Bjorn zabiera rzeczy i stwierdza że lepiej stąd spierdalać, sprawdzajac czy nie ma przypadkiem jakichs randomowych pułapek
+Jedyne co na niego czekało to zamknięte drzwi do których szybko znalazł klucz i wybiegł na zwenątrz zamykając drzwi od zewnątrz.
+
+Kiedy juz myślał, że to koniec jego przygód na dzisiaj, usłyszał zbliżajacy się patrol strażników od jego lewej strony, tak więc zgodnie ze swoim logicznym myśleniem udał sie w prawo sprawnym krokiem, otwierajac sobie przy tym swoją poranną ranę
+
+Po chwili wpada na...Valmira
+
+V: "matko co ci się stało?"
+
+B: "a pamiętasz jak spędziłem dzień i noc...chyba.. z kochankiem strażnikiem? No to próbował mnie zabić"
+
+V: "ale jak to przecież tak się kochaliście ;-;"
+smutneskrzypce.mp3
+
+W tym momencie z Bjorna zaczyna lecieć krew
+
+B: "A ty w ogóle co tu robisz?"
+
+V: "ja szukam ich bo gdzieś tam poszli, idę do południowej bramy"
+
+B: "A co cie tam poprowadziło?"
+
+V: "...sprzątaczka."
+
+I tak oto ruszyli swoje cztery litery (chociaż to chyba powinno wyjść osiem łącznie) w stronę południowej bramy
+
+"Stać, kto idzie!!" krzyknął strażnik, jeden z wielu stojących przy w.w. bramie
+
+
+V: "nie no my tylko szukamy naszych znajomych"
+
+Kiedy tylko to mówi strażnicy powoli zaczynają ich otaczać z brońmi wycelowanymi w ich stronę
+
+"Czemu ten jeden krwawi?" pyta strażnik
+
+Na co sześćdziesiona Valmir odpowiada z dumą
+
+"Przyprowadziłem wam nieposłusznego obywatela" (w tym momencie dostaje Łaskę od niejakiego "Z")
+
+Dostający zawału Bjorn próbuje się tłumaczyć że to był jedynie trochę zbyt ostry seks, w co o dziwo mu wierzą i ich przepuszczają
+Udaje im se przyuważyć że jeden ze strażników coś zaczął zapisywać
+
+
+MENWHILE u naszych zawodowych zjebów
+
+Vel po zamianie z żaby spowrotem w swoją formę ląduje na rękach Iso i oddych a ulgą
+Gdzieś tam z boku Bruno sie na nią patrzy 
+
+
+V: "Mozesz mnie już puścic?"
+
+I: "prosze bardzo"  powiedziała upuszczajac Vel na ziemię
+
+Nagle na zewnątrz słychać trzaskanie, Moon chcąc sprawdzić co się dzieje wychodzi z chatki a kiedy się odwraca drzwi do niej znikają, kiedy my wszyscy wyszliśmy, chatka zniknęła już w całości
+Jak się okazało razem z nią zniknął też nasz kozioł Ulrich i dragonborn Tyrygossa
+
+Moon nagle słyszy wycie wilków
+zaczyna się walka
+
+w trakcie: Moon przygnieciony wilkorem stwierdza ze zamienia sie w wilka przez co Iso i Smerfetka są przekonane że to wilkory go zmieniły w jednego ze swoich 
+Anton na swoim wild magic uziemił Moona (Księżyc jest teraz geostatyczny, nikt nie powiedział czy chodzi o Moon czy Moona) 
+Kiedy w końcu pojawił sie Walmir, wziął chłop przywalił młotem w wilkora Przez chwilę słyszy głos prychający "hmm...ciekawe" i rozgromił bestię zostawiajac w nienaruszonym stanie
+
+Wtem przyszedł Alfa i odwołał swoich podwładnych, najpewniej do ich leża 
+
+Pojawia się również bard. Okazuje się że Moona absolutnie nie da się podnieść z ziemi, jednak po 5 min udaje sie mu samemu wstać
+
+Po jakże cudownej i budującej walce (wcale nie) stwierdziliśmy że musimy się wrócić do kwatery i pożądnie na nie przygotować bo na pewno będzie ich zdecydowanie więcej (wcale nie tak że dostaliśmy wpierdol)
+
+Zabieramy ze sobą jednego martwego wilkora za którego dostajemy 10sz (po jednej na głowe, tylko że zamiast spóźnionego barda Walmir dostaje dodatkową monetę)
+
+Wchodząc do miasta część drużyny przyuważa tieflinga owijającego coś w materiał, który jak tylko nas zobaczył zaczął uciekać
+
+Bruno, Swan, Smerfetka, Moon, Anton i Bjorn za nim zaczynają biec
+Po chwili biegnie już tylko Anton z Moonem i Smerfetką.
+Moon potyka się, a postać wbiega przez zamykające się drzwi do jednej z fabryk.
+Smerfetka rozwaznie wysyła Klakiera do środka jednak z niewiadomych przyczyn (fatum) nagle zamienia się z nim miejscami, a drzwi do fabryki zamykają się
+
+Smerfetka is Plain Shifted
+
+Kiedy przecgodzi przez drzwi, mgły się rozstępują i widać budowle wysokie aż po horyzont, ludzi ubranych w sposób jakiego nigdy nie widziała do tej pory, różnorakie maszyny i podniebne statki z żółtymi wykończeniami, wszystkie oznaczone symbolem Pająka, symbolem Fabryk. Powoli spowrotem otacza ją gęsta mgła i nagle napełnia ją niepokój. W gęstej jak mleko mgle daje się zobaczyć tylko dwie żółte świecące się kule, jakby oczy jakiejś ogromnej istoty
+
+"Czego chcesz w przyszłosci?" pyta 
+
+Praktycznie bez wachania Smerfetka odpowiada " Odzyskać moją rodzinę"
+
+"Mmmm.. Rodzina..."
+
+Smerfetka widzi potężną rękę odgarniającą mgłę, odsłaniającą przed nią widok miasta
+
+"Stoisz teraz na świecie który nazwałem na cześć pewnego potężnego artificera Wielką Kuźnią Kinzie"
+
+"ci którzy szukają tu schronienia przed sprawiedliwością, nie mają tu wstepu" (parafrazuje bo absolutnie nie mam pojęcia co powiedział XD) mówiac to odrzuca pod jej nogi głowę tieflinga którego gonili
+po czym rusza reką i ukazuje drzwi wyjściowe
+
+"To ci się przyda, kiedy zajdzie potrzeba wezwij me imię - Devus - "
+
+Z naszej perspektywy tak jak Smerfetka weszła przez drzwi, tak od razu wyszła
+Zaczęła opowiadać co się wydarzyło i pokazała zwój z pieczęcią syndykatu
+
+"Miasto? W Fabryce?" pytał Moon (w tym momencie do wcześniej biegnacych za tieflingiem podchodzi Vel)
+S: "Tak, budynki ogromne aż po horyzont. Ogarnęła mnie mgła i pojawiła się przedemną ogromna istota, pytając o mój cel" "Głowa tieflina potoczyła się w moją stronę" 
+
+Vel w myślach: "Niee.. to wszystko nie moze sie tak łączyć, symbol na fabryce..Czy to możliwe że ona spotkała patrona fabryki? -Pajkąka Mgieł- sługę Lazurowej Pani
+
+Bruno: "Nie otwieraj tego zwoju tutaj Moon, wróćmy najpierw do kwatery"
+
+Kiedy tak sobie wróciliśmy nagle wszystkich naszła ochota żeby się umyć, takze tak oto zaczęły się przepychanki o jedyne dwie łazienki w domu
+
+Kania, Bjorn i Walmir stają nagle w drzwiach do jednej z nich. Kania stwierdza, nope i idzie do drugiej łazienki do której chciał też wejść Anton jednak Kania był szybszy i udao mu się zamknąć.
+
+W tym samym czasie Bruno skacze nad przepychającym się Bjornem i Walmirem i zamyka się w łazience nr 1, do której Walmir próbuje wywarzyc drzwi jednak ze srodka słychać "Zepsujesz to płacisz" więc przechodzi na łazienkę nr 2 a ze środka Kania woła "Anton kurwa, zajęte!", a niewinny tym razem Anton odpowiada "Ale to nie ja!"
+
+Vel stwierdza że nie będzie się w to bawić i za pstryknieciem palców staje się czysta, widzi to Moon i jak zafascynowane dziecko pyta się co to było i jak to zrobiła V: "To tylko taka jedna magoczna sztuczka"
+Moon pokazując swoimi rękoma typowe "ja też chce" przekonuje Vel żeby na nim też użyła magicznej sztuczki po czym zachwycony przyglądał się swoim czystym rzeczom
+
+Jak tak rzeczy się dzieją i ludzie sie wymieniają miejscami w łązienkach nagle słychać ogromny huk, Vel i Moon od razy rzucają ię do poszukiwania źródła eksplozji którym okazuje się byc gabinet Bruno zaczynający się palić
+
+Tak, bruno otworzył zwój i dostał Fireballem na morde
+
+Vel się drze na wszystkich że się pali i mają ruszyć dupy
+po czym wszyscy zaczynają próbę gaszenia ognia
+Vel zapiernicza Bjornowi wiadro w którym prał swoje ubrania (razem z ubraniami) i biegnie gasić pożar podlatując po schodach i wylewając zawartość wiadra na pożar
+
+Kiedy udało sie już ogarnąć zagrożenie ze strony żywiołu, bard wkurwiony podchodzi do Vel
+"Teraz będziesz to czyścić"
+"nie" odpowiada Vel posyłajac mu ironiczny uśmiech
+"Kurwa kobieto upierz mi te ubrania!"
+Ewidentnie teraz już wkurzona Vel, pstryka palcami czyszcząc ubrania Bjorna
+"dziękuje" mówi po czym jak tylko się odwraca do niej tyłem dostaje taką lepe w łeb że go ogłuszyło na 6 sekund
+
+Kiedy oprzytomniał zobaczył nad sobą Walmira, nagiego Walmira o dosyć sporym jak się okazuje przyrodzeniu (16-wstaw jednostke-) "Wszystko w porządku?" dosłownie chwilę później koło niego staje Anton, różnież nagi (8-wstaw jednostke-) PO czym słychać walenie do drzwi 
+
+"straż miasta, otwierać!!" 
+
+"O, to ja otworzę" powiedział wesoło Walmir 
+No i zaczął się wyścig
+Kania i Swan próbują zatrzymać siłą Walmira jakimś cudem Swanowi się udaje jednak korzystając z okazji do drzwi idzie Anton który ominął randomowo rzucone przez Vel Hold Person rzucone w niego i otworzył drzwi
+
+Za drzwiami stoi znany nam już (niektórym trochę bardziej dogłębnie) Darek mający na ramieniu symbol miasta z z dodaktową gwiazdką (najpewniej oznaczajacą jego stopień) i jego dwóch kolegów ze straży
+
+Anton: "Iso, ktoś do ciebie!" (w tle słychać jak Iso obija się o wszystko próbując jak najszybciej znaleźć się przy drzwiach)
+
+Strażnicy zasłaniają sobie oczy z żałości a Bruno w tym czasie odsyła Antona spowrotem do środka 
+
+"Powiedziano nam że był tutaj jakiś wybuch"
+
+Ktoś tam z tyłu "a że fireball?"
+
+Darek: "ŻecOprOsZe???"
+
+Bruno: "Nie nic, tylko wypadek przy pracy, wszytsko jest już opanowane"
+
+Iso która się nagle pojawiła z nikąd przy drzwiach: HAIIIIIIIII (*blushes* UwU) 
+
+Darek: cześć *puszcza oczko*
+
+Darek: "dobra po prostu nie róbcie więcej halasu"
+
+###### koniec sesji uwu
+
+
