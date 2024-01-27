@@ -1545,9 +1545,9 @@ Słyszymy głos dobiegający z chatki
 }
 
 #### Perspektywa Vel
-Walmir budzi się po kazcu nie wie gdzie jest reszta... Mencing odgłosy kół na korytażu, (to tylko sprzątaczka XD), dowiaduje się gdzie poszli, idzie do bramy
+Valmir budzi się po kazcu nie wie gdzie jest reszta... Mencing odgłosy kół na korytażu, (to tylko sprzątaczka XD), dowiaduje się gdzie poszli, idzie do bramy
 TYMCZASEM... bard budzi się ~~z̶ h̶u̶j̶e̶m̶ w̶ d̶u̶p̶ie~~ ze sztyletem wbitym w bok (nie to miał na myśli gdy mówił ostry seks ale i tak mu stanął)... bard szybko uspał swojego oponeta ex lovera
-po czym wyszedł na ulice, idzie w prawo XD idzie szybkim chodem krwawiąc przy tym wielce XD (mgła gęsta jak mleko), wpada na Walmira 
+po czym wyszedł na ulice, idzie w prawo XD idzie szybkim chodem krwawiąc przy tym wielce XD (mgła gęsta jak mleko), wpada na Valmira 
 
 >konwersacja.mp4 (nadrabiają zaległości)
 >czemu idziesz do połódniowej bramy 
@@ -1556,13 +1556,13 @@ po czym wyszedł na ulice, idzie w prawo XD idzie szybkim chodem krwawiąc przy 
 
 >fair enough...  
 
-Walmir 60 wsypuje barda gdy strażnicy pytają się czemu ten jest we krwi, jakoś z tego wybrneli (wymówka: ostry seks x2)
+Valmir 60 wsypuje barda gdy strażnicy pytają się czemu ten jest we krwi, jakoś z tego wybrneli (wymówka: ostry seks x2)
 idą w naszą stronę przez las... Tymczasem my wychodzimy z chatki on za nami znika, nie ma Urlicha i Tyrygosy ale decydujemy się kontynuować polowanie na Wilkory (Moon usłyszał je w oddali)
 tropiąc je dajamy się zaskoczyć... rozpoczyna się walka... (księżyc staje się geostacjonarny)... Przchodzi alfa i wycofuje wilki (zabiliśmy tylko jedną sztuę ;_;).
 W obawie przed tym że watacha może być większa wracamy do miasta... spotykamy tieflinga z piórem (gonimy go)... wbiega do fabryki NOPE.jpg. Smerfetka wysyła klakiera do środka 
 ale z powodu fatum switchuje z nim miejsce. Smerfetka zmienia plaina i gdy mgła opada wydzi wysokie budowle po horyznot, ludzi w innych strojach i piękne ogromne maszyny z żółtymi wykończeniami oraz symbolami fabryk, podniebne statki latają po niebie a mgła zaczyna znowu robić się gęsta. W mgle widać 2 jasne ślepia, zabrzmiewa pytanie : czego chcesz w przyszłości
-smerfetka: rodziny. (Ten plain to Wielka kuźnia Kinzie a jej twórca którego widzimy oczy nazywa się Dewos)... Wracamy do bazy wypadowej, wkórwionasprzątaczka.mov, Wszyscy idą czyścić ubrania/ myć się. Bruno przeskakuje nad Byornem i Walmirem argumentującymi o to kto pierwszy skożysta z toalety... mija trochę czasu... Bruno idzie odczytać zwój (z tieflinga z fabryki)...
-FireballwGabincecieAUUUUUUUUU, Moon biegnie Rezować Bruno zaczynamy gasić ogień... Bard ma wyjebane i rozkazał wyprać jego ubrania (prestidigitation). Vel się zgadza ale w momencie w którym bard się odwraca dostaje taką lepę że składa się w pół i mdleje na 6 sekund, budzi się a nad nim stoi nagi Walmir (z dyndającym interesem cm nad jego głową)... i Anton... też nagi... Moon ich widzi... powoli wraca do gaszenia pożaru. Ktoś puka do drzwi (STRAŻ OTWIERAĆ!)... wyścigi do drzwi... na czole gołyAnton(TM)... Kania próbuje tacklować ale wywala się na tważ Swan za to daje radę, przytrzymać, barbariana. niestety kolejny w wyścigu był goły anton i rezistując hold person Vel otwiera drzwi... a tam darek z obstawą (miał glowup i gwiazdkę na ramieniu) proszęsięokryć, 
+smerfetka: rodziny. (Ten plain to Wielka kuźnia Kinzie a jej twórca którego widzimy oczy nazywa się Dewos)... Wracamy do bazy wypadowej, wkórwionasprzątaczka.mov, Wszyscy idą czyścić ubrania/ myć się. Bruno przeskakuje nad Byornem i Valmirem argumentującymi o to kto pierwszy skożysta z toalety... mija trochę czasu... Bruno idzie odczytać zwój (z tieflinga z fabryki)...
+FireballwGabincecieAUUUUUUUUU, Moon biegnie Rezować Bruno zaczynamy gasić ogień... Bard ma wyjebane i rozkazał wyprać jego ubrania (prestidigitation). Vel się zgadza ale w momencie w którym bard się odwraca dostaje taką lepę że składa się w pół i mdleje na 6 sekund, budzi się a nad nim stoi nagi Valmir (z dyndającym interesem cm nad jego głową)... i Anton... też nagi... Moon ich widzi... powoli wraca do gaszenia pożaru. Ktoś puka do drzwi (STRAŻ OTWIERAĆ!)... wyścigi do drzwi... na czole gołyAnton(TM)... Kania próbuje tacklować ale wywala się na tważ Swan za to daje radę, przytrzymać, barbariana. niestety kolejny w wyścigu był goły anton i rezistując hold person Vel otwiera drzwi... a tam darek z obstawą (miał glowup i gwiazdkę na ramieniu) proszęsięokryć, 
 Moon: Udało się ugasić pożar panie Bruno. 
 Darek: U W0T M8. 
 Iso: HAIIIIIIIII (*blushes* UwU) 
@@ -1653,7 +1653,7 @@ zaczyna się walka
 
 w trakcie: Moon przygnieciony wilkorem stwierdza ze zamienia sie w wilka przez co Iso i Smerfetka są przekonane że to wilkory go zmieniły w jednego ze swoich 
 Anton na swoim wild magic uziemił Moona (Księżyc jest teraz geostatyczny, nikt nie powiedział czy chodzi o Moon czy Moona) 
-Kiedy w końcu pojawił sie Walmir, wziął chłop przywalił młotem w wilkora Przez chwilę słyszy głos prychający "hmm...ciekawe" i rozgromił bestię zostawiajac w nienaruszonym stanie
+Kiedy w końcu pojawił sie Valmir, wziął chłop przywalił młotem w wilkora Przez chwilę słyszy głos prychający "hmm...ciekawe" i rozgromił bestię zostawiajac w nienaruszonym stanie
 
 Wtem przyszedł Alfa i odwołał swoich podwładnych, najpewniej do ich leża 
 
@@ -1661,7 +1661,7 @@ Pojawia się również bard. Okazuje się że Moona absolutnie nie da się podni
 
 Po jakże cudownej i budującej walce (wcale nie) stwierdziliśmy że musimy się wrócić do kwatery i pożądnie na nie przygotować bo na pewno będzie ich zdecydowanie więcej (wcale nie tak że dostaliśmy wpierdol)
 
-Zabieramy ze sobą jednego martwego wilkora za którego dostajemy 10sz (po jednej na głowe, tylko że zamiast spóźnionego barda Walmir dostaje dodatkową monetę)
+Zabieramy ze sobą jednego martwego wilkora za którego dostajemy 10sz (po jednej na głowe, tylko że zamiast spóźnionego barda Valmir dostaje dodatkową monetę)
 
 Wchodząc do miasta część drużyny przyuważa tieflinga owijającego coś w materiał, który jak tylko nas zobaczył zaczął uciekać
 
@@ -1701,9 +1701,9 @@ Bruno: "Nie otwieraj tego zwoju tutaj Moon, wróćmy najpierw do kwatery"
 
 Kiedy tak sobie wróciliśmy nagle wszystkich naszła ochota żeby się umyć, takze tak oto zaczęły się przepychanki o jedyne dwie łazienki w domu
 
-Kania, Bjorn i Walmir stają nagle w drzwiach do jednej z nich. Kania stwierdza, nope i idzie do drugiej łazienki do której chciał też wejść Anton jednak Kania był szybszy i udao mu się zamknąć.
+Kania, Bjorn i Valmir stają nagle w drzwiach do jednej z nich. Kania stwierdza, nope i idzie do drugiej łazienki do której chciał też wejść Anton jednak Kania był szybszy i udao mu się zamknąć.
 
-W tym samym czasie Bruno skacze nad przepychającym się Bjornem i Walmirem i zamyka się w łazience nr 1, do której Walmir próbuje wywarzyc drzwi jednak ze srodka słychać "Zepsujesz to płacisz" więc przechodzi na łazienkę nr 2 a ze środka Kania woła "Anton kurwa, zajęte!", a niewinny tym razem Anton odpowiada "Ale to nie ja!"
+W tym samym czasie Bruno skacze nad przepychającym się Bjornem i Valmirem i zamyka się w łazience nr 1, do której Valmir próbuje wywarzyc drzwi jednak ze srodka słychać "Zepsujesz to płacisz" więc przechodzi na łazienkę nr 2 a ze środka Kania woła "Anton kurwa, zajęte!", a niewinny tym razem Anton odpowiada "Ale to nie ja!"
 
 Vel stwierdza że nie będzie się w to bawić i za pstryknieciem palców staje się czysta, widzi to Moon i jak zafascynowane dziecko pyta się co to było i jak to zrobiła V: "To tylko taka jedna magoczna sztuczka"
 Moon pokazując swoimi rękoma typowe "ja też chce" przekonuje Vel żeby na nim też użyła magicznej sztuczki po czym zachwycony przyglądał się swoim czystym rzeczom
@@ -1723,13 +1723,13 @@ Kiedy udało sie już ogarnąć zagrożenie ze strony żywiołu, bard wkurwiony 
 Ewidentnie teraz już wkurzona Vel, pstryka palcami czyszcząc ubrania Bjorna
 "dziękuje" mówi po czym jak tylko się odwraca do niej tyłem dostaje taką lepe w łeb że go ogłuszyło na 6 sekund
 
-Kiedy oprzytomniał zobaczył nad sobą Walmira, nagiego Walmira o dosyć sporym jak się okazuje przyrodzeniu (16-wstaw jednostke-) "Wszystko w porządku?" dosłownie chwilę później koło niego staje Anton, różnież nagi (8-wstaw jednostke-) PO czym słychać walenie do drzwi 
+Kiedy oprzytomniał zobaczył nad sobą Valmira, nagiego Valmira o dosyć sporym jak się okazuje przyrodzeniu (16-wstaw jednostke-) "Wszystko w porządku?" dosłownie chwilę później koło niego staje Anton, różnież nagi (8-wstaw jednostke-) PO czym słychać walenie do drzwi 
 
 "straż miasta, otwierać!!" 
 
-"O, to ja otworzę" powiedział wesoło Walmir 
+"O, to ja otworzę" powiedział wesoło Valmir 
 No i zaczął się wyścig
-Kania i Swan próbują zatrzymać siłą Walmira jakimś cudem Swanowi się udaje jednak korzystając z okazji do drzwi idzie Anton który ominął randomowo rzucone przez Vel Hold Person rzucone w niego i otworzył drzwi
+Kania i Swan próbują zatrzymać siłą Valmira jakimś cudem Swanowi się udaje jednak korzystając z okazji do drzwi idzie Anton który ominął randomowo rzucone przez Vel Hold Person rzucone w niego i otworzył drzwi
 
 Za drzwiami stoi znany nam już (niektórym trochę bardziej dogłębnie) Darek mający na ramieniu symbol miasta z z dodaktową gwiazdką (najpewniej oznaczajacą jego stopień) i jego dwóch kolegów ze straży
 
@@ -1752,5 +1752,221 @@ Darek: cześć *puszcza oczko*
 Darek: "dobra po prostu nie róbcie więcej halasu"
 
 ###### koniec sesji uwu
+
+Naszych uszu dobiega melodia, przede wszystkim słyszy ją Bjorn
+Brzmi to jakby ktoś bardzo dobrze wprawiony w grę na instrumentach grał na ulicy
+Bard wychodzi, Anton czeka przed drzwiami (dostaje fatum za utrudnianie pracy DMa)
+
+Swan siedzi i okupuje kibel robiąc sobie selfcare
+
+Bard widzi postać która przygrywa grupce słuchaczy i opowiada jednocześnie jakąś historię.
+Postać to tiefling, 190cm wzrostu, ciężko rozpoznać czy to kobieta czy mężczyzna, ma krótkie czarne włosy i rogi. 
+Historia którą opowiada to jego przygody, jednocześnie przygyrwa na gitarze.
+
+Historia:
+	Kiedyś w lesie postać natrafiła na żabę, która ów postać połknęła xD
+	Owa postać aby się uwolnić musiała rozciąć żabę od środka.
+Tłum zachwyca się historią a jednocześnie Bjorn dołączył się grając na saksofonie.
+~~Małmy mały bardoff~~
+Bardowie zagłuszają dźwięki dookoła swoją piękną muzyką.
+
+Bjorn próbuje podrywać drugiego barda.
+
+-Może jakieś winko wieczorem?
+-Nie wiem czy mam aż tak niskie standardy. 
+***Bjorn dostaje emotional damage***
+Bjorn wspina się na jakieś pudełko.
+-Jak widzisz dla ciebie mogę wejść na najwyższe szczyty. 
+-Dobra trochę się nudzę i chyba będę iść, chyba że macie jakąś ciekawą robotę.
+Bruno się włącza w rozmowę, Bjorn wraca do domu się wypłakać.
+-Przepraszam za mojego bezczelnego kolegę, ale przypadkiem podsłuchałem że szukasz roboty. Od jakiegoś czasu zajmujemy się polowaniem na wilki. Może byś chciała do nas dołączyć, poznać drużynę i pomóc nam z zadaniem?
+
+Postać wchodzi do bazy. 
+Bruno: Uwaga, mamy nowego członka polowania na wilki.
+Bard: Nazywam się Ash - mówi przygyrwając na gitarze
+
+Nadchodzi noc, albo jak to mawiają w cesarstie, nadchodzi północ, kiedy zaczyna morzyć nas sen.
+Iso chwali się kamieniem Valmirowi a ten określa go na 20 sztuk złota wartości.
+
+###### W pokoju Kanii, Moona i Antona
+
+Moon pyta Kanii o samopoczucie Proknora. 
+Anton dołącza się do pytania.
+Kania załamuje się kiedy mówi że Proknora nie ma, Moon zerka do plecaka Kanii który to plecak go wciąga (po przegranym rzucie obronnym na zręczność)
+
+Anton robi linę z prześcieradła. 
+Kania: Ostatnio się tak nie działo jak go otwierałem.
+Anton: Trzeba go zniszczyć
+Kania: Tam są moje rzeczy
+Anton: I MOON.
+
+**Przychodzi Bruno i otwiera plecak, w plecaku normalnie są wszystkie rzeczy.
+Bruno, *myśli że są na grzybach*: Idźcie do swojego pokoju wytrzeźwieć.
+Kania: Jesteśmy w swoim pokoju.
+Bruno: ...
+Bruno: Idę do salonu wytrzeźwieć.**
+
+Perspektywa Moona:
+
+Moon leci w dół, wszystko szybko się rozjaśnia kiedy spada na jakieś pobojowisko. Widzi przed sobą barykady i druty kolczaste.
+Niebo jest bladożółte. Czuje jakby coś za nim stało, kiedy się odwraca nic tam nie ma.
+W owym miejscu jest głucha cisza, jedyny wyczuwalny zapach to zapach prochu.
+Moon krzyczy: 
+**HEEEEEEJ, CHYBA WPADŁEM DO WORKA**
+
+Nad Moonem nagle staje postać, kiedy przygląda się jej to postać ma na sobie płaszcz a ze sobą 2 rewolwery.
+Wydaje mu się że za świecącymi oczami postaci są realne oczy w tle.
+
+M: Witaj, cieszę się że cie widzę.. chyba, jeszcze nie miałem czasu wykonać twojego zadania.
+-Nie przejmuj się - mówi głos - w końcu czas nie gra roli, przebywanie w tamtej linii czasowej jest dla mnie ciężkie dlatego ściągnąłem cię tutaj, żeby porozmawiać (Postaci pojawia się klepsydra której piasek się powoli przesypuje).
+-Kim jesteś?
+-W tłumaczeniu na wasz język nazywają mnie łowcą, jestem złym omenem i przynoszę pecha. Chociaż zależy jak na to spojrzysz, w pechu ludzie też znajdują dużo szczęścia.
+-Dlaczego mnie uratowałeś, w tamtej walce z udziałem Apostrofy.
+-Po prostu zrobiło mi się ciebie szkoda. 
+Postać wyciąga do niego rękę ale zrywa się szybko z niego rękawiczka, razem z całą skórą. Po chwili ręka wraca do normalności ale Moon zauważa że ponad połowa czasu z klepsydry zniknęła w oka mgnieniu.
+-Coś nie pozwala nam w ciebie ingerować. 
+Łowca mówi też o postaci która jest dobrym omenem, (przynajmniej zależy kogo się spyta)
+-Mam jeszcze tylko kilka pytań, ale chyba nie mamy zbyt wiele czasu.
+-Jeszcze jedno. Nie masz co szukać Proknora. (Słyszy kiedy czas klepsydry dobiega końca)
+
+Moon nagle wychodzi z szafy.
+
+###### Jednocześnie u Vel i Iso
+
+*Vel:*
+Kiedy morzy ją sen Vel zakrywa oczy rękami, jakby coś jej świeciło bezpośrednio po oczach.
+Kiedy nie może już wreszcie powstrzymać otwiera oczy i widzi swój dom, leży w swoim łóżku.
+Wszystkie meble i cała dekoracja wygląda jak w dniu w którym ostatni raz z tego pokoju wyszła.
+Kiedy Vel spogląda na swoje nadgarski to są przykute. 
+To co widzi to drzwi otiwerające się i postać jakże pamiętliwa, Veltafa stoi w otwartych już drzwiach.
+Stoi w progu i wpatruje się w swoją córkę, widzi jak w rękach trzyma książkę, w tej księdze zapisane jest wiele szczegółów magii, którą Vel się posłguje
+Jest to księga czarów Veltafy.
+Ojciec wypowiada tylko słowa:
+
+Veltafa: Już niedługo do mnie wrócisz...
+
+Vel budzi się w środku nocy z koszmarami w głowie i ciężko mija jej reszta nocy
+
+###### Sen Kanii
+
+Kania budzi się na polanie, nad nim stoi jego dwóch elfich bracii:
+
+Kasztania
+
+Kamil?
+
+Dziwne bo wszyscy mają futro.
+
+-Wstawaj obiboku, trzeba wody nabrać.
+
+Kania wstaje i razem z braćmi idą do studnii.
+Kania zerka do studnii. Na dnie gdzieś jest wiadro. Kiedy odwraca się wstając, cała sceneria zmienia się drastycznie.
+To co widzi kiedy spogląda spowrotem na wioskę to budynki niczym zrównane z ziemią, jedyne co widzi to ranę na swojej łydce.
+Widzi postać stojącą nad nim. Kania próbuje uciekać ale upada i pełznie po ziemii.
+
+Kani przypomina się spotkanie z postacią, które najpewniej uratowało mu życie tamtego dnia.
+Kania widzi Brorowika, który rośnie do rozmiarów swojego boga, rana na nodze Kanii się natychmiastowo goi kiedy borowik flexuje a Kania budzi się z lekka spokojniejszy. Myśli tylko o wydarzeniach tamtego wieczoru.
+
+~~-A czy łóżko nie jest mokre?
+-Twoje jest Valmirze.
+-To od łez barda.~~
+
+###### Następny dzień
+
+Moris: Kogoś ty znów zatrudnił
+Bruno: Mięso Armatnie?
+
+Moris rzuca sakiewką 120 monet. 
+Moris: Upolowałem resztę wików, i dowiedziałem się kilku rzeczy. 
+
+1. Pani Generał nie ma w mieście
+2. Syndykat ma 2 magazyny w tym mieście. A to oznacza że jeśli chcemy im zagrozić powinniście podzielić się na 2 grupy.
+
+Oni słyszą otiwerające się drzwi. My: kiedy chatka się zawaliła ja i smocza paladynka wytropiliśmy i upolowaliśmy wiedźmę.
+Iso maca mnie i dostaję 10hp.
+Kania rzuca jeszcze na mnie healing word.
+
+Bjorn chce wypić cały kubek Absyntu. Słyszymy śmiech a absynt zamienia się w wodę (Aniołki).
+
+Z magazynów: co warte cokolwiek ukraść a resztę spalić.
+
+##### Dwie drużyny	
+1.
+	Moon
+	Iso
+	Anton
+	Bruno
+	Ash
+	Bjorn
+	
+2.
+	Kania
+	Valmir
+	Smerfetka
+	Vel
+	Ulrich
+
+Drużyna 1. 
+podchodzi pod magazyn. Magazyn nie ma na sobie symbolii jak fabryki i ma dziwną, nieprzyjemną aurę.
+Nie widzą żadnych pułapek i wchodzą do środka. Iso zostaje na czatach.
+
+Anton używa zaklęcia, jego pięty zaczynają świecić jak pochodnie.
+
+Bruno - rzut obronny na zręczność - fail
+Bełt z kuszy wbija się w niewidzialnego Bruno, widać latający bełt i krew lejącą się z Bruno.
+
+Moon używa cure wounds na Bruno. 
+Iso przychodzi do nich.
+
+Bruno dostrzega jakąś antresolę, ale nie widzi żadnych pułapek.
+
+Moon rozgląda się i dostrzega że ktoś nasłuchuje po tym jak tamta grupa zrobiła hałas
+
+Bruno idzie dalej, czuje że coś śmierdzi jakby gniło (jak w stołówce na WAT)
+
+Ash rzuca Bjornem na górę Antresoli. Bjorn orientuje się że chyba coś obok niego jest i stoi na niewidzialności.
+
+
+
+
+
+
+
+Drużyna 2.
+Kania z Valmierm szukają pułapek. 
+Smerfetka w progu wykrywa magię szkoły Uroków (Enchantment)
+
+Być może to jakiś glyph rzucający jakieś zaklęcie. Można go zdjąć dispell magic.
+Valmir próbuje wyniuchać czy jest tam coś jeszcze. 
+
+Klakier podchodzi do glypha. 
+Po chwili zawraca i idzie się przejść po mieście. Jednocześnie glyph przestaje działać.
+
+Wchodzimy. Nie słychać nic poza szumem wiatru w budynku. 
+Zerkamy do pomieszczenia obok, leży tam kilka skrzyń.
+
+Valmir w skrzyniach znajduje jedzenie.
+
+Swan dołącza do nas.
+
+Niedługo po tym słyszymy kroki.
+
+-Kim jesteś?
+-A Tomek, trzeba było mówić. 
+
+Przed nami są drzwi z czarnego metalu. Drzwi są otwarte. Za drzwiami są stojaki z bronią
+Przedmioty nie są same w sobie magiczne ale czuć od nich lekką magię dywinacji, jakby często dotykały ich magiczne ręce.
+
+Kiedy wchodzimy do pomieszczenia czujemy zapach, który kojarzy Vel, Valmir i Smerfetka, zapach czarnego prochu. Przy jakiejś jednej skrzyni siedzi tamten tiefling który rozpoznał mnie jako Tomka.
+
+Svan próbuje rzucić ivisibility. 
+
+Ja rzucam darkness kiedy tiefling się orientuje że nie jestem Tomkiem.
+
+Vel zamyka drzwi na klucz. 
+
+Meanwhile Swan i Valmir przeszukują skrzynie, są tam jakieś płatneże i bronie.
+
+Kania dotyka mnie będąc niewidzialny i atakuje go nie wiedząc że to on. 
 
 
