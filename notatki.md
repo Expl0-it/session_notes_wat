@@ -1926,6 +1926,13 @@ Bruno idzie dalej, czuje że coś śmierdzi jakby gniło (jak w stołówce na WA
 
 Ash rzuca Bjornem na górę Antresoli. Bjorn orientuje się że chyba coś obok niego jest i stoi na niewidzialności.
 
+Walka trwa, bruno upada.
+
+Kiedy zostaje podniesiony i ma upaść znów, orientuje się że w trakcie ostatnich kilku dni zetknął się ze śmiercią wiecej razy niż w całym swoim życiu. Targają nim emocje, widzi swój dom. Przypomina mu się scena. Widzi drzwi zamknięte spod których powoli sączy się krew. Kiedy tak odwraca się to widzi postać. Stoi za nim ale nie widzi jej twarzy, jest rozmyta i mówi do niego, że dobrze wykonał swoje zadanie ale nie pozwoli mu pamiętać o tych czynach ponieważ żaden nie powinien być zmuszony pamiętać o tak okrutnych rzeczach. 
+
+Jego wspomnienia sprawiają że zostaje na 1hp.
+
+Bruno pokonuje jednego z przeciwników. Kiedy umiera to krzyczy - "Ona powróci"
 
 
 
@@ -1952,6 +1959,7 @@ Swan dołącza do nas.
 Niedługo po tym słyszymy kroki.
 
 -Kim jesteś?
+*patrzy się na mnie*
 -A Tomek, trzeba było mówić. 
 
 Przed nami są drzwi z czarnego metalu. Drzwi są otwarte. Za drzwiami są stojaki z bronią
@@ -1969,4 +1977,7 @@ Meanwhile Swan i Valmir przeszukują skrzynie, są tam jakieś płatneże i bron
 
 Kania dotyka mnie będąc niewidzialny i atakuje go nie wiedząc że to on. 
 
+Swan w skrzynce znajduje 2 okrągłe fiolki z symbolem słońca
+Vel wysadza czarny proch w pomieszczeniu
 
+Wybuchamy typów i uciekamy
