@@ -12,6 +12,7 @@ A no i potem zamiast nich pojawił się jeszcze Bruno (ich ojciec) ale w sumie c
 - Koto Kleryk => Kania
 - Niziołek Spores Druid=> Proknor
 - Tiefling Wild Magic Sorcerer => Anton
+- Krasnolud Bard => Bjorn
 - Warlock Tiefling - Smerfetka
 
 # sezon 1
@@ -1934,7 +1935,44 @@ Jego wspomnienia sprawiają że zostaje na 1hp.
 
 Bruno pokonuje jednego z przeciwników. Kiedy umiera to krzyczy - "Ona powróci"
 
+Rudy znajduje 2 karabiny samopowtarzalne, na 1 blokują się (jam), zadają 1d12 + dex dmg
+2 sztylety
+2 sztuki złota
 
+Bruno - jego uwagę przyciąga szafka na której dnie coś leży, ma 2 zielone rączki, sprawdza czy nie ma pułapki
+Kiedy to podnosi widzi plecak, który wygląda jak żaba, kiedy zagląda do środka widzi pustą przestrzeń - bag of holding\
+
+Iso chce przeszukać skrzynki, próbuje otworzyć skrzynkę. Odór dochodzi ze skrzynki, w środku fragmenty ciał i !dziwny zielony nalot!
+Anton zawuaża że kawałki ciał są praktycznie całościowo wyschnięte w środku
+
+Nalot w skrzynkach wydaje się Antonowi być bardzo podobny do zielonego nalotu spod głównego placu w mieście
+
+Iso chce przeszukać ciała, których nie przeszukał Moon
+Jej uwagę zwraca amulet na szyi kapłana, jest to moneta która ma wygrawerowane coś co przypomina wiele pionowych czerwonych oczu
+
+Anton dotyka rękami zielonego nalotu, kiedy to robi jego ręce przestają być drewniane. Znajduje przy tym srebrną monetę
+
+Iso chce zjeść zielony nalot. Antonowi się nie udaje jej powstrzymać.
+Con11 save. Iso wymiotuje. (Pierwszy objaw choroby popromiennej)
+
+Um, magazyn wygląda jakby kiedyś w nim był przechowywane Uran, ale teraz już go nie ma. (amogus sus)
+
+Wychodzą i palą magazyn.
+Kiedy Bruno widzi jak magazyn staje w płomieniach czuje jakby coś bardzo ważnego dla niego zostało w środku.
+Coś co kiedyś należało do niego.
+Bruno wbiega do środka.
+Iso próbuje go powstrzymać ale udaje mu się jej uciec.
+Kiedy Bruno podbiega bucha mu w twarz flashpoint. Pada nieprzytomny.
+Iso i Moonowi udaje się przeżyć falę ognia.
+Moon rzuca na Bruno cure wounds.
+Bruno czuje że to coś jest bardzo blisko, w pomieszczeniu obok.
+Iso wychodzi a Moon idzie z Bruno, próbując mu pomoć kiedy Bruno wytłumaczył że tam coś jest.
+Ogień bucha dookoła nich. Udaje im się uniknąć płomieni (4dmg)
+Kiedy wchodzą do pomieszczenia Bruno zauważa że za jedną ze skrzyń jest czarna maska - mask of many faces - rzuca Alter Self (każde z disguise musi mieć czarny granitur)
+Udaje im się ostatecznie uciec z budynku. Kiedy wychodzą słychać jak zaczyna padać deszcz.
+
+
+Przed magazynem ślady, jakby ktoś wywoził skrzynię z uranem.
 
 
 
@@ -1977,7 +2015,97 @@ Meanwhile Swan i Valmir przeszukują skrzynie, są tam jakieś płatneże i bron
 
 Kania dotyka mnie będąc niewidzialny i atakuje go nie wiedząc że to on. 
 
-Swan w skrzynce znajduje 2 okrągłe fiolki z symbolem słońca
+Swan w skrzynce znajduje 2 okrągłe fiolki z symbolem słońca. Alchemiczne słońce 8d6 dmg - Fireball w butelce.
 Vel wysadza czarny proch w pomieszczeniu
 
 Wybuchamy typów i uciekamy
+
+
+###### Powrót do bazy
+
+Drużyna Bruno dzieli się złotem.
+
+My wracamy.
+
+Naprawiają sobie ubrania. Sprzątaczka mówi że nie ma Morisa Wazy Roberto ani Tomka.
+Robimy sobie shortresta.
+
+Dostajemy 300sz na naszą drużynę
+
+Bruno sprawdza co jest w bag of holding. Bruno wysypuje zawartość bag of holding w ogródku. 
+Ze środka wypadają 3 szklane buteleczki. 
+Moon łapie 2.
+Bruno wypada jedna ale nie udało jej się rozbić.
+Fiolki mają vibe magii evocacji. W środku czerwony płyn.
+
+Bruno wydaje się że to mogą być swojego rodzaju mikstury siły.
+Anton ***rzuca okiem*** na zawartość fiolek. - Arcana - wygląda jak potki leczenia 4d4 + 4
+
+Iso ma na sobie przeklęty przedmiot (amulet z oczami)
+
+Nagle ktoś wbiega, jest to zakrwawiony Waza. Widzi nas i pada nieprzytomny na ziemię a z jego pleców wystaje strzała. 
+Kiedy Iso leczy go, strzała świeci się nekrotyczną energią i Waza nie dostaje leczenia.\
+
+Swan wyjmuje strzałę. Waza zaczyna krwawić. Moon i Iso leczą go.
+Bruno pyta o resztę.
+
+-Zabrali do wierzy przy zachodniej bramie. Napadli na nas kiedy wracaliśmy. 
+Kiedy idziemy strażnicy przyglądają się nam. 
+
+Anton i Bjorn zatrzymują się na słowa
+"W imię lorda Veltafy zatrzymać się"
+
+Bjorn i Anton dostają Katastrofę.
+Anton próbuje się tłumaczyć. Strażnik nawet nie pertraktuje.
+Anton je grzyba. Strażnik zakuwa Antona w kajdanki.
+
+Bjorn próbuje Rizzować strażnika (21). Udaje mu się.
+Pozostali strażnicy go zakuwają.
+Prowadzą Antona i Bjorna do więzienia.
+
+My ciągle uciekamy. Docieramy do wieży. 
+Wieża ma na sobie symbol pająka, na który źle reaguje Vel
+
+Valmir próbuje wywarzyć drzwi ale mu się nie udaje.
+Iso próbuje wywarzyć drzwi (25). Wypierdala je z zawiasów.
+
+Postać Korczu leży w rogu pokoju.
+
+Na górze Leży martwy Roberto i nieprzytomny Tomek, który się wykrwawia.
+Kania leczy Tomka.
+
+Inicjatywa:
+
+Bruno
+Ulrich
+Moon
+Kreatura 1 (przy drzwiach)
+Vel
+Swan
+Iso
+Smerfetka
+Kania
+(Korczu)
+
+Kiedy Czarujący Tiefling upada to krzyczy "Pani tych ziem was pochłonie" a jego ciało staje w płomieniach
+
+Spierdalamy.
+
+Strażnicy nas doganiają.
+między strażnikami jest Darek
+
+Wychodzi z grupy dumy rycerz, zdejmuje hełm tiefling (sir Valdemar) o kolorze skóry tym samym co Vel
+Widzimy sygnet na jego palcu, taki jak Vel.
+(Wschód specjalizuje się w walce z magami, Zachód w polowaniah w bardzo trudnych warunkach)
+-Oh, kogo to widzę, ludzi, którzy wysadzili fabrykę. Ręce do góry.
+
+Zakuwają wszystkich poza Vel
+
+Zabrać ich - odprowadzają wszystkich z wyjątkiem Vel
+
+Vel, Valdemar i Darek zostają z Vel.
+Rozpoznają Vel.
+-Idziesz z nimi czy przechwalasz się statusem?
+Darek podchodzi i zakuwa Vel w zwykłe kajdanki. Prowadzą nas spowrotem do tego więzienia z którego na początku uciekliśmy.
+
+Dostajemy 5 poziom
