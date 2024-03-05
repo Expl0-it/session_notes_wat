@@ -2109,3 +2109,472 @@ Rozpoznają Vel.
 Darek podchodzi i zakuwa Vel w zwykłe kajdanki. Prowadzą nas spowrotem do tego więzienia z którego na początku uciekliśmy.
 
 Dostajemy 5 poziom
+
+Ląduje w celi z Antonem i Bjornem.
+Wciąż jesteśmy w antymagicznych kajdanach.
+Zasypiamy.
+
+Iso - leży nagle na ziemi otoczona ze wszystkich stron różowym promirnirm
+Spogląda na gigantyczną postać która góruje nad nią.
+Ma wiele robaczych odnóży i długą włócznie.
+Na głowie ma szmatkę i dużą ilość różowych podłóżnych oczy na czarnej twarzy.
+Dzierży w dłoni lancę/włócznię.
+Przygląda się iso uważnie.
+Na naszyjniku któey ma Iso są identyczne symbole oczu.
+Wygląda to jaby Iso była zamknięta w dużym kokonie.
+Postać śmieje się kiedy zauważa Iso, nazywa ją zabawką.
+-I cóż takiego robisz mała kobietko, co cię pokusiło żeby założyć ten medalion.
+-Ładny był, czym jesteś.
+Ta obelga zabolała ją mocno. 
+-Głupie jak wy ludzie potradicie tak szybko zapimnieć z czym macie do czynienia. Nie wszyscy bogowie są tacy jacy się wydają.
+Dlaczego powinnam dać ci się wybudzić a nie zamknąć cię tu razem ze mną?
+-Mogę ci pomóc.
+-Będę potrzebować drobnej przysługi.
+-Jakiej
+-Jaka to może być przysługa w tym mieście. W końcu tak dobrze mi sie układa, mój powrót jest nieunikniony.
+Mogłabym wziąć twoją duszę i nasycić się nią pierwszy raz od tak dawna, co może być rekompensatą?
+Chciałabym żebyś kogoś zabiła
+-Kogo
+-Chodź, szepnę ci na ucho. (Iso zbliża się)
+*mówi*
+-Czy mamy umowę?
+-Tak
+Iso budzi się.
+
+
+Anton:
+Nie ma snu, bardziej leżąc w celi przypominają mu się wspomnienia z życia w cyrku.
+Przez mgłę przypomina mu się że ma brata.
+Coś specjalnego ich łączyło. Przypomina mu sie jak jego brat spadł z drzewa.
+Miał już umrzeć ale po kilku godznach wstał.
+Kiedy Anton był blisko śmierci też wielokrotnie się budził post factum.
+Kiedy spadnie poniżej 0hp jego postać po 8h wstaje. Im mniejsze obrażenia tym szybciej wstaje.
+Są metody które go mogą zabić ale konwencjonalnie raczej ciężko.
+Pamięta też że im częściej umiera tym bardziej szkarłayny się staje i tym bardziej niszczycielsko działa jego dzika magia.
+//Anton jest bardzo blisko żeby zostać głównym złym Kampanii//
+
+Sesja ma charakter przesłuchań:
+przesłuchania robione celami.
+
+Vel
+Smerfetka
+Ja Anton i Bard
+Valmir i (Korczu)-Mizu
+Kania, Moon Bruno
+Iso, Swan, Ash
+
+Przesłuchuje nas Kapitan Valdemar.
+
+Najpierw:
+Valmir i (Korczu)-Mizu
+
+Zadam wam 3 proste pytania:
+1. Kim jesteście, oczywiście te pytania będą mieć kilka podpytań.
+2. Co cię łączy z syndykatem i jakie masz powiązanie z panią Kyssi.
+3. Co wiesz o postaci w pajęczej zbroi?
+
+
+
+Patrzy się na Valmira.
+Valmir:
+-Kim jestem a raczej kim byłem.
+-Nie interesuje mnie to. Kim jesteś i czego szukasz w tym mieście.
+-Jestem krasnoludem, dołączyłem do tej drużyny ponieważ szukam pewnego kamienia, wszystko po to aby odyskać honor mojej rodziny.
+Mizu:
+-Łowca nagród.
+
+2. Co cię łączy z syndykatem i jakie masz powiązanie kultem pani Kyssi.
+Valmir:
+Nic nie odpowiada. Jedna z postaci coś zapisuje.
+Mizu:
+-Pierwsze słyszę.
+-Dziwne, zobaczyliśmy dzieci z symbolem tego kultu przy tobie.
+
+3. Co wiesz o postaci w pajęczej zbroi?
+Valmir:
+Nie rozumiem do końca o czym mówisz.
+-Czy widziałeś kiedyś tę postać.
+-Ledwo ją tylko zobaczyłem (postać która przerwała łańcuchy przy moonie w arcu z apostrofą).
+-Kiedy ją widziałeś.
+-Parę dni temu.
+-I nie wiesz co robiłą wtedy, co robiła dalej?
+-Dobra następny
+Mizu: 
+-Nigdy nie słyszałem.
+
+
+Iso, Swan, Ash
+
+(Zone of truth)
+Iso się udaje zdać rzut.
+Ash oblewa. Swan też.
+
+Swan:
+-Bardem, poszukuje zarobku, Oleander mi na imie, mówią mi Swan
+
+Ash:
+-Też jestem bardem, bardowie są super.
+-Imie
+-Ash
+-Jesteś ze stepu laskiego?
+-Tak.
+-Dużo tieflingów przechodzi przez Velogród.
+-Czy też pracowałeś dla pana DonBudo
+
+
+Swan:
+-To są ci którym wybuchły 2 magazyny.
+-2?
+-a 1.
+-Czyli byłeś tam? Jest drugi... (zapisuje)
+-Ja tylko podążam za przeznaczeniem ale też wykonuje rozkazy
+-Czyje
+-Nie odpowiada.
+*patrzy sie na jednego z monków*
+-Będziesz mówić? (12dmg)
+-Jeden z niskich.
+-Który??
+*Swan nadstawia drugi policzek* (18dmg)
+-Pan DonBundo, czy mogę już nie dostawać po ryju?
+-Kleryk ulecz ją. (Lazurowa energia leczy jej rany)
+-Nie łączy mnie nic z żadną organizacją czy innym religijnym kultem.
+
+Ash:
+-Dobre pytanie, chciałabym znać na nie odpowiedź.
+
+
+
+Swan:
+Nic.
+
+Ash:
+Nie widziała jej.
+
+
+
+Tamtą dwójkę odprowadzają spowrotem do celi, zostaje Iso.
+
+1. 
+Iso:
+-Iso
+-Służysz Werserowi?
+-Tak.
+-Co cię łączy z panem DonBudo?
+-Pieniądze
+-Coś poza tym?
+-Nie
+-Czyli nie będziesz mówić prawdy. Dobrze zrobimy to na ostro chyba że przysiągniesz na Wersera że będziesz mówić prawdę.
+*mija czas, Iso traci rachubę czasu*
+-To jak? Chyba że Werser ma tchóży za paladynów.
+*Iso sie lekko wkurwia ale dalej siedzi cicho*
+-Weź jej przyłóż. (12dmg) Co, dalej nic nie wyśpiewasz. Jestem ciekaw jak Lord Werser zareaguje jak wyśle mu liścik z wiadomością że jego Paladyn nie chce się przyznać do rzeczy.
+Myślę że odpowiedź bym dostał do wieczora.
+Mogę mu też wysłać twoją głowę, nie pierwszy raz to robię z paladynami Wersera
+-Będę mówić prawdę
+-Przysięgasz na Wersera??
+-Nie
+-Przyłóż jej. (12dmg)
+-Może porozmawiamy inaczej, wiem jak fani Wersera lubia błyskotki (przynosi diament o wartości 300gp)
+-Będę przysięgać na Wersera.
+
+2.
+Iso:
+-Co cię łączy z DonBudo.
+-Pieniądze.
+-Z syndykatem. Opisuje jej wygląd Tieflingów z którymi walczyli. Czy byłaś w którymś z ich magazynów
+-Tak  bo były tam pieniądze
+-Jebane sroki wersera.
+-Co cię łączy z kultem.
+-No bo w magazynie był medalion i go założyłam.
+-No tak po prostu go założyłaś? Oczywiście że go założyłaś. *facepalm*
+-Komunikowała się z tobą? 
+-Nie (kłamstwo)
+-Dobra wyprowadzić ją.
+
+Kiedy Iso wychodzi to Werser niemógłby z niej być bardziej dumny.
+
+
+Moon, Kania, Bruno
+
+1.
+Moon:
+-Jesteś druidem to wiem, jak cię zwą.
+-Moon
+-Nie pochodzisz z tego kontynentu.
+-Chyba nie
+-Co cię tu sporwadza
+-Dobre pytanie, w sumie lubie dowiadywać się jak działa społeczeństwo.
+-Co cię łączy z DonBudo, czy jest w tym pokoju?
+-Tak. Pracuje dla niego (Patrzy się na Budo)
+Kania:
+-Teraz ty kocie
+-Jestem elfem
+*patrzy się na kapłana, on wzdycha*
+-Nazywam się Kania, jestem klerykiem Ika borowika.
+-Ika Borowika, boga bagien na tych ziemiach? Co ty, jesteś na jakiejś świętej misji.
+Bruno:
+-A więc pan jest sławny DonBudo.
+*Cisza*
+Wyciąga jego sygnet, oddaje go Budo.
+-Strażnicy wyjść, ale WYJŚĆ.
+Zostają sami.
+-Pozdrowienia od Dymira.
+-Co to za cyrk w tym mieście, miałeś jedno zadanie i tak to spierdalasz.
+-O jakie zadanie ci chodzi
+-Poradzenia sobie z syndykatem. Nie wiesz gdzie reszta, gdzie Moris.
+-Masz szczęście że Dymir pociągną sznurki żeby was stąd wyrwać. Jeśli nikt nie będzie wiedzieć więcej o kulcie to stąd wyjdziecie bez problemu
+-Mam jedno ważne pytanie, co tu robi córka Veltafy.
+-Też bym chciał to wiedzieć.
+-Nie pamiętam wielu rzeczy ale to skojarzenie nie mogło mi wyjść z głowy, że jest akurat tu a nie w Velogrodzie.
+-Póki co o tym nie wie i niech tak zostanie. I tak za często muszę patrzeć na wschodnią ścianę Velogrodu (ściana wisielców, na sam widok jest się obrzydzonym)
+dobrze wiesz do czego zdolny jest ten popierdoleniec
+-Nie dziwię się że uciekła a ty?
+-Ale będąc w mojej sytuacji, jak Veltafa się dowie że ją puszczam to sam tam zawisne. Wiele razy byłem zmuszony towarzyszyć mu w łapankach, jego dom jest jak twierdza. Jeśli to więzienie ma być przerażające to nie widzieliście komnat Velogrodu.
+-Powiedz mi, może wiesz czemu nic nie pamiętam 
+-Sam poprosiłeś a ja poprzysiągłem na Dymira że nic ci nie powiem
+-Taka ciekawostka, jeśli poszukujesz swojego starego sprzętu to Veltafa ma twoje rękawiczki, są mu bardzo użytczne w jego robocie.
+
+Odprowadzają Bruno.
+
+2.
+Moon:
+-Syndykat zabił mi znajomego
+-Poszukujesz zemsty?
+-Nie, raczej sprawiedliwości.
+-Co wiesz o kulcie.
+-Jakim Kulcie
+-Kulcie 1. pani Kyssi.
+-Nie za dużo.
+Kania:
+-Co wiesz o syndykacie.
+-Że to tieflingi i że nie lubią się z Bruno.
+-O kulcie?
+-Nic
+
+3. 
+Moon:
+-Co wiesz o postaci w pajęczej zbroi. Widziałeś ją?
+-Tak
+-Kiedy.
+-Podczas walki.
+-Co to za postać.
+-Czy ta postać miała płomienie, jakiego koloru.
+-Czarne
+-Czy ta postać miała *dużego czarnego ptaka*
+*moonowi lecą łzy z oczu*
+-Czy coś jeszcze dziwnego wydarzyło się tamtego dnia?
+*kapłan rzuca na moona calm emotion*
+-Dużo róznych rzeczy sie wtedy wydarzyło.
+-Czy był ktoś tam poza paladynem, poza Apostrofą?
+-Ktoś jeszcze inny był.
+-Kto
+-Dziwna postać, pomogła mi przeżyć.
+-Powiedziałbyś że to był łut szczęścia czy pech.
+-Nie mam pojęcia. Raczej bym powiedział łut szczęścia, ale nie wiem, to kiedyś się okaże.
+-Całe szczęście, jeśli byś powiedział pech musielibyśmy cię zabić.
+-Czy wiesz coś o postaci która ma połowę włosów czarnych, połowę pomarańczową.
+-Dobra już cię nie pytam, jesteś błogosławionym farciarzem.
+Kania:
+-O pajęczej zbroi?
+-Widziałem ją raz ale nic nie wiem.
+
+
+
+Smerfetka.
+
+Smerfetka zdaje rzut.
+Myślą że sfailowała.
+
+1.
+-Jestem smerfetka
+-Dla kogo praujesz
+-Dla Bruna
+-Co wiesz o syndykacie.
+-Pan donBudo z nimi walczy, podejrzewam że częśc z nich mogła być niemiła dla mnie kiedy tu przybyłam. (Perswazja 22)
+-Historia się klei
+-Co wiesz o kulcie pierwszej pani Kyssi.
+-Gdzieś chyba słyszałam tę nazwę ale nie wiem gdzie
+-Też brałaś udział w magazynach, w którym byłaś.
+-W tym który ekplodował.
+-Za tymi którzy byli w tamtym magazynie jutro pojawią się listy gończe za spowodowanie śmierci strażnika
+
+
+3. 
+-Co wiesz o postaci w pajęczej zbroi
+-Widziałam ją kilka dni temu ale zbyt wiele o niej nie wiem.
+-Psia mać, nic o nim nie wiemy, pojawia się i znika, co on jest, dym.
+
+
+
+
+SCHODZI DO NASZEJ CELI: mamy -8 charyzmy
+
+-Wiatam panów.
+(nie mam przewagi, jestem wrażliwy na magię lazurowej pani)
+
+Na mojej szyi pojawia się jakieś znamie niczym ciernie
+
+-Kapłan: Nieczęsto spotykam kogoś przeklętego przez lazurową panią.
+
+1.
+Anton:
+-Kim jesteś
+-Anton. 
+-Praujesz dla donBudo.
+-Tak, wyciągnął mnie z tarapatów mam u niego dług.
+-Co cię łączy z syndykatem
+-To że jestem tieflingiem nie znaczy że jestem z syndykatu
+-Coś wiesz o kulcie 1 pani Kyssi.
+-Jakiż to kult?
+Bjorn:
+-Jam jest Bjorn
+-Co cię sprowadza.
+-Pieniążki
+-Syndykat
+-Magazyn eksplodował
+-Byłeś w nim?
+-Nie.
+-Czyli byłeś w tym drugim?
+-No tak wyszło, a kogo trzeba wsypać.
+-Możesz mi wymienić kto tam był. Skrybo zapisuj. Już kilka osób wsypało resztę
+-Wymienia
+-Uczciwy z pana krasnolud, to się ceni.
+
+
+
+3. 
+-Parę dni temu nastąpiłą poważna walka. Prawie wtedy bym umarł.
+-Łut szczęścia?
+-Moja rodzina nie umiera.
+-Los gorszy od śmierci.
+-Wszyscy wiemy jak to działą, Apostrofa ma identycznie. Wszystko pod czym podpisze się apostrofa jest gorsze od śmierci.
+
+
+
+Będę musiał zapisać swoją rozmowę!!!
+Moja krew jest dużo ciemniejsza, można by powiedzieć że prawie że fioletowa.
+
+
+Wchodzą do Vel:
+niezdany rzut
+
+-Co ty tu robisz w tym mieście, jakie są twoje intencje, jaki masz argument dlaczego nie powinienem cię odesłać spowrotem do Velogrodu.
+-Widziałeś co tam się dzieje, czemu miałabym tak wracać
+-Odkąd poszłaś jest gorzej.
+-Nie będzie lepiej jak wrócę.
+-Dla nas będzie. Pani księżniczka obchodzi ją bardziej los jej niż innych.
+-Wypuścisz i zaraz mnie tu nie ma, jakby mnie nigdy nie było.
+-Będzie nasz przesłuchiwać i katować. Co powinienem zrobić żeby ocalić ludzi w tym mieście.
+-Nie wiem.
+-Nikt nie wie, żadnych odpowiedzi na pytania które dziś zadaje.
+-A ta dziwna fiolka, skąd ją masz. (otrzymała od kolegi swojego mistrza)
+-Dostałam
+-Od kogo
+-Od pewnego elfa, zanim dotarliśmy tutaj.
+-Jak się nazywał (Omarksito)
+-Czy Omar ci coś mówi.
+-Ta
+-To już wszysto wiesz.
+-Masz więcej szczęścia niż rozumu. Omar to elitarny szpieg lorda Vetafy. To co dostałaś to mikstura wampiryzacji.
+-O tym nie miałam jak wiedzieć.
+-Całe szczęście tego nie wypiłaś. Znalazłby cię niemal natychmiastowo.
+-To dlatego powiedział w ostateczności
+*rekwiruje miksturę*
+-Nie masz mi za co dziękować.
+*Spogląda na dwójkę mnichów, rzuca dominate person (efekt wampirów)*
+-Kapłanko, komu służysz
+-Lazurowej panii.
+-Czyli nic dziś nie widziałaś.
+-A wy mnichowie?
+-Tobie słuzymy.
+-Czyli nic dziś nie widzieliście.
+-Bierz rzeczy i idź, zaraz wypuszczę resztę twoich towarzyszy.
+*rzuca na mnichów modify memory, kapłanka była podstawiona, jego przjaciółka*
+
+
+Są za nami listy gończe. Ja używam disguise self żeby wyglądać inaczej.
+Wychodzimy. Odzyskujemy rzeczy
+
+Dalej pada deszcz. 
+Kiedy idziemy naszą uwagę przyciąga para postaci.
+Jedna z nich ma normanlny miecz, druga drewniany. Pojedynkują się.
+U jego boku ludzka kobieta. Przygląda się pojedynkowi.
+Postać z drewnianym mieczem sprawnie wygrywa.
+Bard rzuca Vicious Mockery na tego który przegrał:
+Nie udaje mu się.
+Ha ha ha, przegrał z drewnianym mieczem.
+-A może ty chcesz stawić czoła Adamowi, wojownikowi z drewnianym mieczem.
+A kim wy w ogóle jesteście. 
+-Ja na przykład jestem Bardem
+-Czy wiesz coś o werserze
+-Kobieta mówi - nie, nie wie.
+-Jeśli opowiesz mi Adamie o swoich wyczynach to może napiszę o tobie balladę.
+-A podróżowałem tu i tam. Bywałem w krainache elfów czy zdobywałem wulkany na tej planecie.
+*Bruno sprawdza, Adam mówi prawdę*
+K: Sugerowała bym być grzeczna (rzut dc25)
+
+Kobieta ma na sobie szmaragdową szatę i długie kręcone włosy.
+
+Bruno: Zmierzę się z tobą ale daj nam spokój jak skończymy.
+A: Dlaczego miałym męczyć ludzi z dobrym sercem.
+
+Valmir chce zmniejszyć miecz Kobieta (Lutera) rzuca counterspella
+
+Bruno zakłada maskę. Ale nic się nie dzieje.
+Adam sprawnie paruje ostrze Bruno ale wciąż utrzymują dystans.
+
+Bruno Paruje jego atak. Potem atakuje ale czuje się jakby ktoś rzucił na niego silvery barbs.
+
+Bruno pada na ziemię.
+Nie powiem, dzielny z ciebie wojownik, jak cię zwą.
+-Nie powiem
+-Nazywam sie Bjorn, (puszcza oczko do pięknej pani)
+-Umiałbyś walczyć lepiej z prawdziwym mieczem?
+-Byłaby to wtedy nierówna walka.
+-Zakładam że taki wielki wojownik nie szuka tylko sławy. Skąd wracasz.
+-A byłem tu i tam, ojczyzna wzywa.
+-A skąd jesteś
+-Stąd.
+(Vel sobie coś przypomina)
+(Kiedy patrzy na Vel od Lutery słyszy "Ani słowa jeśli wiesz co dla ciebie dobre")
+-Przez to żeś szlachetny wojownik nie będę wam dłużej zawracać głowy.
+Bruno poleca mu tę karczmę w której raz byliśmy, której nie lubi.
+-Nie wiecie kiedy pani generał wraca?
+-Dzisaj
+-To świetnie.
+-Co cię łączy z panią generał
+-Nic go nie łączy - odpowiada Lutera
+(Lutera się patrzy na Vel i mówi telepatycznie, nie mów tego nikomu, źle się to skończy)
+
+Lutera rzuciła arcane lock na spodnie barda sealując jego suwak.
+-Słowo przestrogi, jeśli spróbujesz cokolwiek z tym majstrować, znasz zaklęcie kuli ognia?
+
+-Zawsze możesz przeprosić >:3 Tacy twojego pokroju przepraszają na kolanach.
+Kania - command - padnij.
+Bjorn pada na ziemie
+
+Bard podchodzi do Lutery i przeprasza ją, tłumacząc się tym że chce się dowartościować.
+Ona dispelluje arcane lock
+
+Wracamy do domu.
+
+Widzimy list pozostawiony w drzwiach, list od Morisa.
+Mówi że znalazł jakieś miejsce związane mocno z syndykatem do którego powinniśmy się udać jak najszybciej.
+Jest duży nacisk na to żeby się tam udać jak najszybciej.
+Udajemy się w to miejsce.
+Wychodzimy z miasta.
+Robi się ciemno.
+Kiedy jesteśmy już poza murami w oddali poza miastem (ze 2h drogi)
+Nagle słyszym coś bardzo głośnego, wręcz ryk dobiegający z miasta.
+Coś w mieście dzieje sie nie tak.
+W kłębach dymu postać lewituje nad miastem.
+W bardzo krótkiej chwili całe miasto rozpala się różowym płomieniem.
+Mamy dziwne przeczucie, ciągnie nas ono spowrotem do miasta.
+Bruno czuje się jakby pozostawił w mieście coś bardzo cennego
+Iso zaczyna iść w stronę miasta
+Bruno chce wracać
+Moon chce iść razem z Bruno
+
+Czujemy jaKbyśmy słyszeli wtapiające sie w wiatr krzyki ludzi z miasta.
+Vel też podlatuje w tamtą stronę.
+Wszyscy wracamy do Szczerego Pola
